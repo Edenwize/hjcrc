@@ -1,10 +1,10 @@
-# Why this Document
+The Judeo-Catholic system has been around for a long time. It's details need better explanation.
 
-The Judeo-Christian system has been around for a long time. It effects the world over. I felt there was a need to gather this information because the details of the system are kept silent and because there is intent to obfuscate this information.
+I wrote this document in markdown to allow easy editing. The raw document is titled [hjcrc.md](https://github.com/EdenWise/hjcrc/blob/main/HJCSIC_part1.md)
 
-I decided to write this document in markdown so that other people can help. The raw document is titled [hjcrc.md](https://github.com/EdenWise/hjcrc/blob/main/HJCSIC_part1.md) I list the steps below that I take to convert it to a Microsoft Word document. It will look like one I have [here](http://tinyurl.com/hjcr1).
+I list the steps below that I take to convert it to a Microsoft Word document. It will look like one I have [here](http://tinyurl.com/hjcr1).
 
-# Template Build
+## Template Build
 
 Pandoc can import what is basically a style sheet to design the document. The allowable styles are limited but it still gets a fair amount of formatting. I may be able to do more with [Pandoc's Input Method](https://pandoc.org/MANUAL.html#input), I have yet to try.
 
@@ -12,7 +12,7 @@ I first generated a template and then I imported the matching styles from my ori
 
     pandoc.exe --output template.docx --print-default-data-file reference.docx
 
-## Styles Import from Existing Document
+### Styles Import from Existing Document
 
 I then imported matching styles from an existing document to `template.docx`:
 
@@ -20,13 +20,13 @@ I then imported matching styles from an existing document to `template.docx`:
   * Dev Tab > Document Template > Organizer > Copy all styles to right and Close.
 * Microsoft Word open `template.docx`  > Word-and-tmple.docx: Organizer > copy styles to left.
 
-# Things to do before conversion:
+## Things to do before conversion:
 
 First, Pandoc needs help to convert SVGs to PNG and uses the program [librsvg](https://wiki.gnome.org/action/show/Projects/LibRsvg). I found an old one for Windows online that still seems to work good: [rsvg-convert.exe](https://opensourcepack.blogspot.com/2012/06/rsvg-convert-svg-image-conversion-tool.html) (I have a copy if needed). Here is the line that `pandoc.exe` probably uses to convert them: `rsvg-convert.exe --format=png --dpi-x=220 --dpi-y=220 --output <name>.png <name>.svg`
 
 Second, any SVGs will need the fonts to be converted to paths (Object to Path). The above program renders them poorly otherwise.
 
-# Word-Document styling that has to be done:
+## Word-Document styling that has to be done:
 
 Images Align:
 
@@ -54,7 +54,7 @@ Images Align:
   * Headings put I-Bar on, right-Click each one select Paragraph
     * ~~Spacing             Before:          0 pt; Line spacing: Single~~
 
-# To Do and Extraneous
+## To Do and Extraneous
 
 * Pandoc/Markdown image attributes still fail (width, align, others)?
 * Paragraph spacing (template.docx only allows basic format options.) may be helped with.
