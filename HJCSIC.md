@@ -134,9 +134,7 @@ This is the beginning of a god spat that has lasted 4100 years. It has spread ca
 
 
 
-The research for this paper is from my personal experience, my limited reading of the history of Chaldea[^HECSBAV3], but mostly from the Bible. The Bible, the most read book in the world, is where the Jews and Christian leaders document their intent. The Old Testament has been refined many times by the Jews because their system is extraordinarily profitable. While the Bible has been created to thwart general understanding it is incredibly insightful if: one is willing to learn the ![](images/15_hebrew-code.svg)Hebrew Code[^Hebrew-Code], the missing history, overcome the graphic representations[^graphic], bypass the entire sections of rubbish, and learn of a very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators). A couple more things: the beginning of the Bible is packed with details; and that the Bible is largely metaphorical (messages relating to the Hebrew Code) with scant references to history to feint accuracy.
-
-
+The research for this paper is from my personal experience, my limited reading of the history of Chaldea[^HECSBAV3], but mostly from the Bible. The Bible, the most read book in the world, is where the Jews and Catholic leaders document their intent. The Old Testament has been refined many times by the Jews because their system is extraordinarily profitable. While the Bible has been created to thwart general understanding it is incredibly insightful if: one is willing to learn the ![](images/15_hebrew-code.svg)Hebrew Code[^Hebrew-Code], the missing history, overcome the graphic representations[^graphic], bypass the entire sections of rubbish, and learn of a very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators). A couple more things: the beginning of the Bible is packed with details; and that the Bible is largely metaphorical (messages relating to the Hebrew Code) with scant references to history to feint accuracy.
 
 * I have found that some Bible content can only be understood by those who have felt similar experiences.
 
@@ -242,7 +240,7 @@ Eve is the "LORD" here. Cain, Abel, and Seth are probably associates of Eve rath
 
 
 
-[^Judeo-Christian-Definition]: ``BLANK`` The typical definition of religion (to mean spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and for the Christians in the know. Religion was used to disguise it because it had man similar properties.
+[^Judeo-Christian-Definition]: ``BLANK`` The typical definition of religion (to mean spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and for the Catholics in the know. Religion was used to disguise it because it had man similar properties.
 
 
 
