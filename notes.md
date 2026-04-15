@@ -4,13 +4,15 @@
 [^05]: Def.: Rewarding a person or concept financially or otherwise until one can guarantee its success.
 [^10]: The Bible though largely obscure to amateurs, provides very exacting detail on what the system is.
 
+discrete discrimination
+
 Today it is fine-tuned and dichotomous.
 
 I will relay this system's evolution and effects through their own teaching the Bible[^10].
 
-![alt text](images/05_ages-of-civilization_eden.svg)
+![alt text](images/05_ages-of-civilization_eden.svg) 
 
-The research for this paper is from my personal experience, my limited reading of the history of Chaldea[^HECSBAV3], but mostly from the Bible. The Bible, the most read book in the world, is where the Jews and Catholic leaders document their intent. The Old Testament has been refined many times by the Jews because their system is extraordinarily profitable. While the Bible has been created to thwart general understanding it is incredibly insightful if: one is willing to learn the ![](images/15_hebrew-code.svg)Hebrew Code[^Hebrew-Code], the missing history, overcome the graphic representations[^graphic], bypass the entire sections of rubbish, and learn of a very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators). A couple more things: the beginning of the Bible is packed with details; and that the Bible is largely metaphorical (messages relating to the Hebrew Code) with scant references to history to feint accuracy. (I have found that some Bible content can only be understood by those who have felt similar experiences.)
+The research for this paper is from: the Bible, my personal experience, and my limited reading of the history of Chaldea[^HECSBAV3]. The Bible is the testimony of the Hebrew and Catholic leader's passion for their system. It has been carefully constructed and requires knowing the ![](images/15_hebrew-code.svg)Hebrew Code[^Hebrew-Code]. It's design is to thwart general understanding yet to be able to glean the system's details for the most knowledgeable in the system. Once one knows the system's impetus, overcomes the graphic repellants[^graphic], disregards the rubbish, ~~and learns of the very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators)~~. A couple more things: the beginning of the Bible is packed with details; and that the Bible is largely metaphorical (messages relating to the Hebrew Code) with scant references to history to feint accuracy. (I have found that some Bible content can only be understood by those who have felt similar experiences.)
 
 Warning: The details described herein contain vivid selfish acts that created fatal consequences. Please read with sympathy and consideration.
 
