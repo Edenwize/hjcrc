@@ -4,15 +4,9 @@
 [^05]: Def.: Rewarding a person or concept financially or otherwise until one can guarantee its success.
 [^10]: The Bible though largely obscure to amateurs, provides very exacting detail on what the system is.
 
-discrete discrimination
-
-Today it is fine-tuned and dichotomous.
-
-I will relay this system's evolution and effects through their own teaching the Bible[^10].
-
 ![alt text](images/05_ages-of-civilization_eden.svg) 
 
-The research for this paper is from: the Bible, my personal experience, and my limited reading of the history of Chaldea[^HECSBAV3]. The Bible is the testimony of the Hebrew and Catholic leader's passion for their system. It has been carefully constructed and requires knowing the ![](images/15_hebrew-code.svg)Hebrew Code[^Hebrew-Code]. It's design is to thwart general understanding yet to be able to glean the system's details for the most knowledgeable in the system. Once one knows the system's impetus, overcomes the graphic repellants[^graphic], disregards the rubbish, ~~and learns of the very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators)~~. A couple more things: the beginning of the Bible is packed with details; and that the Bible is largely metaphorical (messages relating to the Hebrew Code) with scant references to history to feint accuracy. (I have found that some Bible content can only be understood by those who have felt similar experiences.)
+I will relay this system's evolution and effects through their own teaching the Bible[^10]. The Bible is the testimony of the Hebrew and Catholic leader's passion for their system. It has been carefully constructed and requires knowing the ![](images/15_hebrew-code.svg)Hebrew Code[^Hebrew-Code]. It's purpose is to thwart general understanding yet, for the most knowledgeable in the system, to be able to glean the system's design. Once one knows the system's impetus, overcomes the graphic repulsions[^graphic], ignore the rubbish, ~~and learns of the very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators)~~. A few notes: the beginning of the Bible is packed with details, that the Bible is largely metaphorical, and that much content of the Bible requires familial ties to get it context. It's scant hints of history, I think are oversights (wanting to keep periodical movements from overshadowing their gods).
 
 Warning: The details described herein contain vivid selfish acts that created fatal consequences. Please read with sympathy and consideration.
 
@@ -20,5 +14,7 @@ Warning: The details described herein contain vivid selfish acts that created fa
 
 [^backwrite]: my word... making newer rules apply throughout. Possibly I could make revisionistic work. From [Wiktionary](https://en.wiktionary.org/wiki/revisionistic): changing some accepted doctrine or view of history.
 [^Judeo-Catholic-Definition]: ``BLANK`` The typical definition of religion (to mean spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and for the Catholics in the know. Religion was used to disguise it because it had man similar properties.
+
+history of Chaldea[^HECSBAV3]
 
 More Review needed: HJCSIC_Story of the Moral +
