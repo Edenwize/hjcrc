@@ -2,8 +2,6 @@
 
 [^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
 
-[^05]: Def.: Rewarding a person or concept, financially or otherwise, until one can guarantee its success.
-
 [^10]: The Bible though largely obscure to amateurs, provides very exacting detail on what the system is.
 
 ![alt text](images/05_ages-of-civilization_eden.svg) 
@@ -18,6 +16,8 @@ Warning: The details described herein contain vivid selfish acts that created fa
 
 [^Judeo-Catholic-Definition]: ``BLANK`` The typical definition of religion (to mean spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and for the Catholics in the know. Religion was used to disguise it because it had man similar properties.
 
-history of Chaldea[^HECSBAV3]
+~~(Manifests as disguised discrimination)~~.
+
+Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly, though, I got this information by constant consideration of my reading the Bible.
 
 More Review needed: HJCSIC_Story of the Moral +
