@@ -4,9 +4,11 @@
 
 [^10]: The Bible though largely obscure to amateurs, provides very exacting detail on what the system is.
 
+[^Hebrew-Code]: The Hebrew people (and many others today) use a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions.
+
 ![alt text](images/05_ages-of-civilization_eden.svg) 
 
-I will relay this system's evolution and effects as conveyed by the Bible[^10]. The Bible is the testimony of the Hebrew and Catholic leader's passion for their system. It is carefully built. It requires knowing the ![](images/15_hebrew-code.svg)Hebrew Code[^Hebrew-Code]. To the outsiders of the system it's purpose is to thwart understanding, for the most adherent, to be able to glean the system's design. Once one knows the self-focused impetus, overcomes the graphic repulsions[^graphic], and ignores the rubbish, one is able to discern the system. ~~and learns of the very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators)~~. A few notes: the beginning of the Bible is packed with details, the Bible is largely metaphorical, and that much content of the Bible requires either a knowing history with the system or has been a targeted victim of it. ~~It's scant hints of history, I think are oversights (wanting to keep periodical movements from overshadowing their gods).~~
+
 
 Warning: The details described herein contain vivid selfish acts that created fatal consequences. Please read with sympathy and consideration.
 
