@@ -8,10 +8,9 @@ Over time the "god's" asocial encounters encouraged them to hide and misdirect. 
 
 ## Sources for this Writing
 
-This writing is only really possible because of my personal experience. Because of it
-Some things in the Bible are only really understandable by those who have had similar experience. I will relay this system's evolution and effects as conveyed by the Bible[^10].
+This writing is only really possible because of my personal experience. Because I an excluded, I am able to understand the people's stories in the Bible who have had similar experience. With this experience, I will relay this system's evolution and effects as conveyed by the Bible[^10].
 
-The Bible is the testimony of the Hebrew and Catholic leader's passion for their system. It is carefully built. It's purpose is to thwart understanding to the outsiders of the system. Once one knows the underwritten's self-focus, can decrypt using the ![](images/15_hebrew-code.svg) Hebrew Code[^Hebrew-Code], overcomes the graphic repulsions[^graphic], and ignores the rubbish, one is able to discern the system. ~~and learns of the very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators)~~.
+The Bible exemplifies the Hebrew and Catholic leader's passion for their system. It is carefully built. It's purpose is for insiders to glean the system's development, while to outsiders thwart understanding. When one knows the underwritten's self-focus, can decrypt using the ![](images/15_hebrew-code.svg) Hebrew Code[^Hebrew-Code], overcomes the graphic repulsions[^graphic], and ignores the rubbish, one is able to discern the system.
 
 A few notes: the beginning of the Bible is packed with details, the Bible is largely metaphorical, and that much content of the Bible requires either a knowing history with the system or has been a targeted victim of it. ~~It's scant hints of history, I think are oversights (wanting to keep periodical movements from overshadowing their gods).~~
 

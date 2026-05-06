@@ -23,3 +23,5 @@ Warning: The details described herein contain vivid selfish acts that created fa
 Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly, though, I got this information by constant consideration of my reading the Bible.
 
 More Review needed: HJCSIC_Story of the Moral +
+
+ ~~and learns of the very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators)~~.
