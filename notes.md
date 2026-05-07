@@ -8,8 +8,6 @@
 
 ![alt text](images/05_ages-of-civilization_eden.svg) 
 
-
-
 Warning: The details described herein contain vivid selfish acts that created fatal consequences. Please read with sympathy and consideration.
 
 *Personal Salvation*
@@ -25,3 +23,5 @@ Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly,
 More Review needed: HJCSIC_Story of the Moral +
 
  ~~and learns of the very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators)~~.
+ 
+  ~~It's scant hints of history, I think are oversights (wanting to keep periodical movements from overshadowing their gods).~~
