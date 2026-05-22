@@ -4,8 +4,6 @@
 
 Warning: The details described herein contain extreme and selfish behaviors that result with mortal consequences, please read if only one can feel one can control these behaviors.
 
-[^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
-
 [^10]: The Bible though largely obscure to amateurs, provides very exacting detail on what the system is.
 
 [^Hebrew-Code]: The Hebrew people (and many others today) use a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions.
@@ -32,6 +30,7 @@ the big man
 *Personal Salvation*
 *full disclosure*
 
-## Other
+## To Do
 
-More Review needed: HJCSIC_Story of the Moral +Genesis 1
+* More Review needed: HJCSIC_Story of the Moral +Genesis 1
+* [^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
