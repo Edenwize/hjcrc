@@ -1,4 +1,8 @@
-[^Information]: Version: 00_2025-01-24; Online: <http://tinyurl.com/hjcr1> <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/HJCSIC.md>
+# Intro
+
+[^Information]: Version: 00_2026-05-20; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md>
+
+Warning: The details described herein contain extreme and selfish behaviors that result with mortal consequences, please read if only one can feel one can control these behaviors.
 
 [^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
 
@@ -8,20 +12,26 @@
 
 ![alt text](images/05_ages-of-civilization_eden.svg) 
 
-Warning: The details described herein contain vivid selfish acts that created fatal consequences. Please read with sympathy and consideration.
-
-*Personal Salvation*
-
-[^backwrite]: my word... making newer rules apply throughout. Possibly I could make revisionistic work. From [Wiktionary](https://en.wiktionary.org/wiki/revisionistic): changing some accepted doctrine or view of history.
+[^backwrite]: (My word) Rewriting history to make newer rules apply throughout (possibly I could make revisionistic work---from [Wiktionary](https://en.wiktionary.org/wiki/revisionistic): changing some accepted doctrine or view of history).
 
 [^Judeo-Catholic-Definition]: ``BLANK`` The typical definition of religion (to mean spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and for the Catholics in the know. Religion was used to disguise it because it had man similar properties.
 
 ~~(Manifests as disguised discrimination)~~.
 
-Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly, though, I got this information by constant consideration of my reading the Bible.
+## How this writing became possible.
 
-More Review needed: HJCSIC_Story of the Moral +
+Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly, though, I got this information by constant consideration of my reading the Bible.
 
  ~~and learns of the very deliberate, clobbering of representations (the Old Testament is generically mislabeled to secret its perpetuators)~~.
  
   ~~It's scant hints of history, I think are oversights (wanting to keep periodical movements from overshadowing their gods).~~
+
+## Genesis 1
+
+the big man
+*Personal Salvation*
+*full disclosure*
+
+## Other
+
+More Review needed: HJCSIC_Story of the Moral +Genesis 1
