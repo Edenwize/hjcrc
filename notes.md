@@ -1,6 +1,6 @@
 # Intro
 
-[^Information]: Version: 00_2026-05-20; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md>
+[^Information]: Version: 00_2026-05-20; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md> BITLY Account froze.
 
 Warning: The details described herein contain extreme and selfish behaviors that result with mortal consequences, please read if only one can feel one can control these behaviors.
 
@@ -10,11 +10,9 @@ Warning: The details described herein contain extreme and selfish behaviors that
 
 ![alt text](images/05_ages-of-civilization_eden.svg) 
 
-[^backwrite]: (My word) Rewriting history to make newer rules apply throughout (possibly I could make revisionistic work---from [Wiktionary](https://en.wiktionary.org/wiki/revisionistic): changing some accepted doctrine or view of history).
+[^backwriten]: (My word) Rewriting history to make newer rules apply throughout (thereby clobbering some history).
 
-[^Judeo-Catholic-Definition]: ``BLANK`` The typical definition of religion (to mean spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and for the Catholics in the know. Religion was used to disguise it because it had man similar properties.
-
-~~(Manifests as disguised discrimination)~~.
+[^Judeo-Catholic-Definition]: The traditional definition of religion (a spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and Catholics leaders. Religion was used because it had many similar properties and disguised their system.
 
 ## How this writing became possible.
 
