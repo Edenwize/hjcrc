@@ -4,13 +4,11 @@
 
 Warning: The details described herein contain extreme and selfish behaviors that result with mortal consequences, please read if only one can feel one can control these behaviors.
 
-[^10]: The Bible though largely obscure to amateurs, provides very exacting detail on what the system is.
-
 [^Hebrew-Code]: The Hebrew people (and many others today) use a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions.
 
 ![alt text](images/05_ages-of-civilization_eden.svg) 
 
-[^backwriten]: (My word) Rewriting history to make newer rules apply throughout (thereby clobbering some history).
+[^backwriten]: (My word) Yes, this clobbers the history).
 
 [^Judeo-Catholic-Definition]: The traditional definition of religion (a spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and Catholics leaders. Religion was used because it had many similar properties and disguised their system.
 
