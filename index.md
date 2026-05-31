@@ -14,7 +14,8 @@ My story is that I am one of the excluded people. This writing is only really po
 
 ## Genesis 1
 
-The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was likely started as a survival tool: away from there river was all desert. If a drought… occurred… So the original Hebrew started underwing the big man. The big-man protected the farm… Then the big-man affected market prices, scared the neighbors… and the Hebrew kept underwriting him. It became a rewarding life. Originally 'heaven' was an all-male institution, 'In the beginning *God* created the **heavens** and the **earth**' (Gen 1:1 NIV). But the rewarded life left behind others. Good and evil was created: heaven/earth, day/night, water/sky, land/sea, sun/moon, man/nature. Please follow me :).
+The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was likely started as a survival tool: away from there river was all desert. If a drought… occurred… So the original Hebrew started underwing the big man. The big-man protected the farm… Then the big-man affected market prices, scared the neighbors… and the Hebrew kept underwriting him. It became a rewarding life. Originally 'heaven' was an all-male institution, 'In the beginning *God* created the **heavens** and the **earth**' (Gen 1:1 NIV). But the rewarded life left behind other men. Good and evil was created: heaven/earth, day/night, water/sky, land/sea, sun/moon, man/nature. Please follow me :).
 
 ## Genesis 2
 
+Well men, the Hebrew leaders, realized that an all-make lead institution was fantasy so on the seventh day they 'rested from their work.' Then the '*Lord God* made the earth and the heavens.'4 (A 'god' or 'lord god' \[female god\] repeats a gods sin with one standout change as a symbol to pander for underwriting.)]
