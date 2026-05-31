@@ -16,12 +16,12 @@ Warning: The details described herein contain extreme and selfish behaviors that
 
 ## Genesis 1
 
-the big man
-*Personal Salvation*
-*full disclosure*
+## Genesis 2
 
 ## To Do/Appendix
 
+* *Personal Salvation*
+* *full disclosure*
 * More Review needed: HJCSIC_Story of the Moral +Genesis 1
 * [^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
 * Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly, though, I got this information by constant consideration of my reading the Bible.
