@@ -2,9 +2,11 @@
 
 Human civilization was once a natural order. Then, 4100 years ago, the Hebrew 'religion' started their system. The system is extraordinarily rewarding, very private, and (to the ignorant) loomingly deadly. The Hebrews (and the Catholics---a sect from their start) protect the system ruthlessly. To the insiders they encourage it's silence , and to the outsiders they obfuscate it's existence. It has become so prevalent they expect to get world-rule from it.
 
-The system is a structure of underwriting (*definition*: rewarding a person or concept, financially or otherwise, until one can guarantee its success). Simply, they underwrite chosen males for fifty years then they underwrite chosen females for fifty years. These underwritten people being well and consistently supported have their sexuality bloom. They become hormonal and narcissistic. Over time they become so much so, the Hebrews equate them *as gods*. The people who feel they have to deal with them, they counter by creating a policy. They support these policies which grow alluringly to the respective sex of the age. After fifty years of these polices, they build to sexual extremes: war on one end and overly-pleasing on another.
+The system is a structure of underwriting (*definition*: rewarding a person or concept, financially or otherwise, until one can guarantee its success). Simply, they underwrite chosen males for fifty years then they underwrite chosen females for fifty years. These underwritten people being well and consistently supported have their sexuality bloom. They become hormonal and narcissistic. Over time they become so much so, the Hebrews equate them *as gods*. The people who feel they have to deal with them, the underwritten counter by creating a policy. These policies grow alluringly to the respective sex of the age.
 
-The narcissists learned from the social clashes to hide and misdirect. Some people, with the 'gods' growing more powerful, learned they could get inclusion with them if they became a representative of their interest(s). The representatives proliferated, and eventually, they became saturated. Then a second group started. These people pandered to the gods by *excluding people*. For doing this, the gods gave them inclusion… some. This second group, today, is the Catholics. The system, after 4100 years, is well-hidden, extremely dichotomous, and fine-tuned---it manifests as discrete discrimination. .
+ After fifty years of these polices, they build to sexual extremes: war on one end and overly-pleasing on another.
+
+The narcissists learned from the social clashes to hide and misdirect. Some people, with the 'gods' growing more powerful, learned they could get inclusion with them if they repeated their policies. The representatives proliferated, and eventually, they became saturated. Then a second group started. These people pandered to the gods by *excluding people*. For doing this, the gods gave them inclusion… some. This second group, today, is the Catholics. The system, after 4100 years, is well-hidden, extremely dichotomous, and fine-tuned---it manifests as discrete discrimination. .
 
 ## How this writing became possible.
 
@@ -18,4 +20,4 @@ The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was 
 
 ## Genesis 2
 
-Well men, the Hebrew leaders, realized that an all-make lead institution was fantasy so on the seventh day they 'rested from their work.' Then the '*Lord God* made the earth and the heavens.'4 (A 'god' or 'lord god' \[female god\] repeats a gods sin with one standout change as a symbol to pander for underwriting.)]
+Well, the Hebrew leaders, eventually realized that an all-male lead institution was fantastical so on the seventh day they 'rested from their work.' Then the '*Lord God* made the earth and the heavens (Gen 2:4).' (A 'god' or 'lord god' \[female god\] repeats a underwritten's sin with one standout change as a symbol to pander for underwriting.)]
