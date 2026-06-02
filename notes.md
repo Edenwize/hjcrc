@@ -12,7 +12,7 @@ Warning: The details described herein contain extreme and selfish behaviors that
 
 ![alt text](images/05_ages-of-civilization_eden.svg) 
 
-[^backwriten]: (My word) Yes, this clobbers the history).
+[^backwriten]: (My word) It clobbers history by applying newer rules throughout.
 
 ## Genesis 1
 
