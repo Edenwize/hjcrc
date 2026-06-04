@@ -10,9 +10,10 @@ Warning: The details described herein contain extreme and selfish behaviors that
 
 [^graphic]: Its graphicness can hide meanings that can only be tolerated by those who have abundant health (from supernatural safety).
 
-![alt text](images/05_ages-of-civilization_eden.svg) 
-
 [^backwriten]: (My word) It clobbers history by applying newer rules throughout.
+
+![img-civi](images/05_ages-of-civilization_eden.svg)
+![img-code](images/15_hebrew-code.svg)
 
 ## Genesis 1
 
