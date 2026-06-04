@@ -10,10 +10,9 @@ Some of us had to deal with the underwritten, and some of us are sacrificed. I h
 
 ## Genesis 1
 
-The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was likely started as a survival tool: away from the river was all desert. If a drought… occurred… So the original Hebrew started underwriting the big man. The big-man protected the farm… With continual underwriting the big-man affected market prices, scared the neighbors… It became a rewarding life. The big men became so protected, so powerful, the Hebrews began to equate them as *gods*. Originally 'heaven' was an all-male institution, 'In the beginning *God* created the **heavens** and the **earth**' (Gen 1:1 NIV). The rewarded life left other men behind though. Good (with an underwritten) and evil were created: heaven/earth, day/night, water/sky, land/sea, sun/moon, man/nature. (Please stick with me.)
+The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was likely started as a survival tool: away from the river was all desert. If a drought… occurred… So the original Hebrew started underwriting the big man. The big-man protected the farm… With continual underwriting the big-man affected market prices, scared the neighbors… It became a rewarding life. The big men became so protected, so powerful, the Hebrews began to equate them as *gods*. Originally 'heaven' was an all-male institution, 'In the beginning *God* created the **heavens** and the **earth**'^Gen 1:1 NIV^. The rewarded life left other men behind though. Good (with an underwritten) and evil were created: heaven/earth, day/night, water/sky, land/sea, sun/moon, man/nature. (Please stick with me.)
 
 ## Genesis 2
 
-Well, the Hebrew leaders, eventually realized that an all-male lead institution was fantastical so on the seventh day they 'rested from their work.' Then the '*Lord God* made the earth and the heavens (Gen 2:4).' 
+Well, the Hebrew leaders, eventually realized that an all-male lead institution was dangerous and fantastical so on the seventh day they 'rested from their work.'^Gen 2:2^ Then the '*Lord* God made the earth and the heavens.'^Gen 2:4^
 
-(A 'god' or 'lord god' \[female god\] repeats a underwritten's sin with one standout change as a symbol to pander for underwriting.)]  ~~(with one standout change to confuse and symbolize)~~

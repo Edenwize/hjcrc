@@ -19,9 +19,11 @@ Warning: The details described herein contain extreme and selfish behaviors that
 
 ## Genesis 2
 
+* *Personal Salvation*
+* A 'god' or 'lord god' \[female god\] repeats a underwritten's sin with one standout change to confuse and as a symbol to pander for underwriting.)
+
 ## To Do/Appendix
 
-* *Personal Salvation*
 * *full disclosure*
 * More Review needed: HJCSIC_Story of the Moral +Genesis 1
 * [^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
