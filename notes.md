@@ -19,8 +19,8 @@ Warning: The details described herein contain extreme and selfish behaviors that
 
 ## Genesis 2
 
+[^copy]: A 'god' or 'lord god' \[female god\] repeats a underwritten's sin with one standout change to confuse and as a symbol to pander for underwriting.)
 * *Personal Salvation*
-* A 'god' or 'lord god' \[female god\] repeats a underwritten's sin with one standout change to confuse and as a symbol to pander for underwriting.)
 
 ## To Do/Appendix
 
