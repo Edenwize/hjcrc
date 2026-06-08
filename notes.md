@@ -22,6 +22,9 @@ Warning: The details described herein contain extreme and selfish behaviors that
 [^copy]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting \[also to confuse\].
 * *Personal Salvation*
 * male-tude
+* 'religion'
+* A major divergence happened when the beautiful girls fought the female 'lords': they splintered and eventually became what we know as the Catholics today.
+* It presents as disguised discrimination.
 
 ## To Do/Appendix
 
