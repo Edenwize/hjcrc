@@ -19,4 +19,9 @@ The rewards were so good that they wanted to continue the underwriting. But a le
 A woman, knowing the biggest man won, realized that in creating her son she could be the best mother.
 
 And the woman was to be part of this man. From his rib, ' 'Genesis 2: 21. So the Lord God caused the man to fall into a deep sleep; and while he was sleeping, he took one of the man's ribs and then closed up the place with flesh.
- https://bibliajfa.com.br/app/niv/01O/2/21~~
+
+POSSIBLE FEMALE LORD CAME FIRST, THEN ETHICS.
+
+* G2:1 Thus the heavens and the earth were completed in all their vast array.
+  * Max: Least fortunate man dies, excitement dies.
+  * Ant: Female Lord jumps in says she can build a better man.
