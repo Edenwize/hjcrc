@@ -14,6 +14,8 @@ The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was 
 
 ## Genesis 2
 
+* The pronouns here (he) are quite deceptive.
+
 The rewards were so good that they wanted to continue the underwriting. But a leader showed up and was female, they rallied, and created a code of ethics, 'you must not eat from the tree of the knowledge of goo<ul>d</ul> and evi<ul>l</ul>, for when you eat from it you will certainly die.'<sup>Gen 2:17</sup> (The Bible gets ahead of itself here, trying to make it look like the system was perfect to form from the start. ~~The copying of man's sin happened later.)~~ The Hebrew leaders, eventually realized that an all-male lead institution was fantastical so on the seventh day they 'rested from their work.'<sup>Gen 2:2</sup> This is when the female god came in. She wanted to be underwritten like the men were. Her existence is crucial, their everything, they love to keep her silent. She began forgetting the nurture-instinct and copied[^copy] the male-god policies to appeal for underwriting, 'the *Lord God* made the *earth* and the *heavens*…'<sup>Gen 2:4</sup> She is to be responsible for making the male image, 'Then the Lord God formed a man from the dust of the ground…<sup>Gen 2:7</sup>'. This man was to be the men of all men. The 'woman' was built from his creation, 
 
 A woman, knowing the biggest man won, realized that in creating her son she could be the best mother.
@@ -25,3 +27,5 @@ POSSIBLE FEMALE LORD CAME FIRST, THEN ETHICS.
 * G2:1 Thus the heavens and the earth were completed in all their vast array.
   * Max: Least fortunate man dies, excitement dies.
   * Ant: Female Lord jumps in says she can build a better man.
+* 'earth and the heavens… plant… rain… man created…' **She copies male-tudes.**
+* G2:16-17 And the Lord God commanded the man, "You are free to eat from any tree in the garden; but you must not eat from the tree of the knowledge of good and evil, for when you eat from it you will certainly die." **Lets earthy man free, can give him godhood.**
