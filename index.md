@@ -30,4 +30,4 @@ POSSIBLE FEMALE LORD CAME FIRST, THEN ETHICS.
 * 'earth and the heavens… plant… rain… man created…' **The females in the know, realizing as power-vacuum, want to bring-up the the next big man. To get underwriting, to become female lords, they begin copying the male discriminations.**
 * G2:16-17 And the Lord God commanded the man, "You are free to eat from any tree in the garden; but you must not eat from the tree of the knowledge of good and evil, for when you eat from it you will certainly die." **Female Lord protects heaven, jukes the earthy man, even looks nurturing, and says godhood should be avoided---but hints she can give godhood still for those willing to work against the earthy man.**
 * **Female created from man so as to be one flesh. (means female protections given by Adam)**
-* Now this nurturing thing is going to be a pain …so the Lord made a man who was to represent the *earthy* females politically.
+* Now this nurturing thing is going to be a pain to the big man getting things…so the Lord made a man who was to represent the *earthy* females politically.
