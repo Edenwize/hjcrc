@@ -24,10 +24,7 @@ And the woman was to be part of this man. From his rib, ' 'Genesis 2: 21. So the
 
 POSSIBLE FEMALE LORD CAME FIRST, THEN ETHICS.
 
-* G2:1 Thus the heavens and the earth were completed in all their vast array.
-  + Max: **Least fortunate man dies, male-tude excitement dies.**
-  * ~~Ant: Female Lord jumps in says she can build a better man.~~
-* 'earth and the heavens… plant… rain… man created…' **The females in the know, realizing as power-vacuum, want to bring-up the the next big man. To get underwriting, to become female lords, they begin copying the male discriminations.**
+**Least fortunate man dies which triggers the excitement of the male-tude to die.** 'Thus the heavens and the earth were completed in all their vast array… restedv from their work.''<sup>Gen 2:1-2</sup> **The males are sedate which allows feminine nurturing to grow, some amount of ethics return.** **The females in the know, realizing a power threat, want to preserve heaven. ~~want to bring-up the the next big man.~~  To get underwriting, to become female lords, they begin copying the male discriminations ~~(but apply them to the female nurturing) ~~.** Then 'the Lord God made the **earth and the heaven**… plant… rain… man created…'<sup>Gen 2:4…</sup> 
 * G2:16-17 And the Lord God commanded the man, "You are free to eat from any tree in the garden; but you must not eat from the tree of the knowledge of good and evil, for when you eat from it you will certainly die." **Female Lord protects heaven, jukes the earthy man, even looks nurturing, and says godhood should be avoided---but hints she can give godhood still for those willing to work against the earthy man.**
 * **Female created from man so as to be one flesh. (means female protections given by Adam)**
 * Now this nurturing thing is going to be a pain to the big man getting things…so the Lord made a man who was to represent the *earthy* females politically, 'Genesis 2: 22. Then the Lord God made a woman from the rib he had taken out of the man… and is united to his wife, and they become *one flesh*… and '[he] was *naked* and [he] felt no shame.'
