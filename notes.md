@@ -4,8 +4,6 @@
 
 Warning: The details described herein contain extreme and selfish behaviors that result with mortal consequences, please read if only one can feel one can control these behaviors.
 
-* Catholics got included by creating a sacrifice policy.
-
 ## How this writing became possible.
 
 [^12]: The Hebrew people (and many others today) use a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions.
