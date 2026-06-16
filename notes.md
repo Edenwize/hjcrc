@@ -1,16 +1,16 @@
 # Intro
 
-[^Information]: Version: 00_2026-05-20; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md> BITLY Account froze.
+[^05]: Version: 00_2026-05-20; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md> BITLY Account froze.
 
 Warning: The details described herein contain extreme and selfish behaviors that result with mortal consequences, please read if only one can feel one can control these behaviors.
 
 ## How this writing became possible.
 
-[^Hebrew-Code]: The Hebrew people (and many others today) use a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions.
+[^12]: The Hebrew people (and many others today) use a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions.
 
-[^graphic]: Its graphicness can hide meanings that can only be tolerated by those who have abundant health (from supernatural safety).
+[^15]: Its graphicness can hide meanings that can only be tolerated by those who have abundant health (from supernatural safety).
 
-[^backwriten]: (My word) It clobbers history by applying newer rules throughout.
+[^17]: (My word) It clobbers history by applying newer rules throughout.
 
 ![img-civi](images/05_ages-of-civilization_eden.svg)
 ![img-code](images/15_hebrew-code.svg)
@@ -19,7 +19,10 @@ Warning: The details described herein contain extreme and selfish behaviors that
 
 ## Genesis 2
 
-[^copy]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting \[also to confuse\].
+[^22]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting \[also to confuse\].
+
+[^24]: I call this male-tude.
+
 * *Personal Salvation*
 * male-tude
 * 'religion'
