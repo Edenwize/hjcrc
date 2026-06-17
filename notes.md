@@ -19,14 +19,15 @@ Warning: The details described herein contain extreme and selfish behaviors that
 
 ## Genesis 2
 
-[^22]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting \[also to confuse\].
+[^30]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
 
-[^24]: I call this male-tude.
+[^32]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting \[also to confuse\].
+
+[^34]: I also call this male-tude.
 
 * *Personal Salvation*
-* male-tude
 * 'religion'
-* A major divergence happened when the beautiful girls fought the female 'lords': they splintered and eventually became what we know as the Catholics today.
+* ~~A major divergence happened when the beautiful girls fought the female 'lords': they splintered and eventually became what we know as the Catholics today.~~
 * It presents as disguised discrimination.
 
 ## To Do/Appendix
