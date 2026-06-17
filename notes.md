@@ -1,8 +1,8 @@
 # Intro
 
-[^05]: Version: 00_2026-05-20; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md> BITLY Account froze.
+[^00]: Version: 00_2026-05-20; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md> BITLY Account froze.
 
-Warning: The details described herein contain extreme and selfish behaviors that result with mortal consequences, please read if only one can feel one can control these behaviors.
+[^03]: *Definition*: Rewarding a person or concept, financially or otherwise, until one can guarantee its success.
 
 ## How this writing became possible.
 
