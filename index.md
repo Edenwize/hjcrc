@@ -31,3 +31,5 @@ POSSIBLE FEMALE LORD CAME FIRST, THEN ETHICS.
 
 **… plant… rain… man'<sup>Gen 2:4+</sup> The female lord misleads the earthy men to be ethical, to remain humble ’… you must not eat from the tree of the knowledge of good and evil'. **But for those that break this rule, she can give godhood to,** 'for when you eat from it you will certainly die."<sup>Gen 2:16-17</sup> **Female created from man so as to be one flesh. (means female protections given by Adam)**
 * Now this nurturing thing is going to be a pain to the big man getting things…so the Lord made a man who was to represent the *earthy* females politically, 'Genesis 2: 22. Then the Lord God made a woman from the rib he had taken out of the man… and is united to his wife, and they become *one flesh*… and '[he] was *naked* and [he] felt no shame.'
+
+Dad (and Mom?) lied and said I was wrong for insinuating Grandpa and Grandma Partridge had anything to do with Grandpa Stormer's death.
