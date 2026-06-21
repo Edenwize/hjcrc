@@ -19,11 +19,11 @@
 
 ## Genesis 2
 
-[^30]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
+[^30]: I also call this male-tude.
 
 [^32]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting \[also to confuse\].
 
-[^34]: I also call this male-tude.
+[^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
 
 * *Personal Salvation*
 * 'religion'
