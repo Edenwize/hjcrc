@@ -6,6 +6,8 @@
 
 ## How this writing became possible.
 
+[^10]: It's purpose is for insiders to glean the system's development, while to the outsiders, to thwart affection.
+
 [^12]: The Hebrew people (and many others today) use a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions.
 
 [^15]: Its graphicness can hide meanings that can only be tolerated by those who have abundant health (from supernatural safety).
