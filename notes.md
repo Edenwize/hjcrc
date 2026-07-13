@@ -1,6 +1,6 @@
 # Intro
 
-[^00]: Version: 00_2026-05-20; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md> BITLY Account froze.
+[^00]: Version: 00_2026-07-12; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md> BITLY Account froze.
 
 [^03]: *Definition*: Rewarding a person or concept, financially or otherwise, until one can guarantee its success.
 
