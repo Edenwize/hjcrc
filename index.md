@@ -1,8 +1,6 @@
 # The Message of the Judeo-Catholic Bible[^00]
 
-[^00]: Version: 00_2026-07-12; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md> BITLY Account froze.
-
-**Warning:** *The details described herein contain extreme and selfish behaviors that have deadly results. Please read with respect for life.*
+**Warning:** *The details described herein contain extreme and selfish behaviors that have deadly results. Consider with respect for life.*
 
 Human civilization was once a natural order. Then, 4100 years ago, the Hebrew 'religion' started their system. The system is extraordinarily selfish, very secretive, and (to the ignorant) loomingly deadly. The Hebrews (and the Catholics---a sect from their start) protect the system ruthlessly. To the insiders, it's silence they encourage, and to the outsiders, it's existence they obfuscate. It has become so prevalent they expect to get world-rule from it.
 
