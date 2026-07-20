@@ -12,8 +12,6 @@
 
 [^30]: I also call this male-tude.
 
-[^31]: These are females of fortune, pulled in by the the male-tude's great rewards. They became largely desensitized of the needs of society. They are a force to be reckoned with, can barefacedly speak falsehoods.
-
 ** [^32]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting \[also to confuse\].
 
 [^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
