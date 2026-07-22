@@ -12,7 +12,7 @@
 
 [^30]: I also call this male-tude.
 
-** [^32]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting \[also to confuse\].
+** [^32]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting (also to confuse).
 
 [^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
 
@@ -27,6 +27,8 @@
 * Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly, though, I got this information by constant consideration of my reading the Bible.
 * [^Judeo-Catholic-Definition]: The traditional definition of religion (a spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and Catholics leaders. Religion was used because it had many similar properties and disguised their system.
 * Some people had to deal with the gods, The underwritten learned to lie, and hide add a way to deal with their social clashes.
+* She wanted to make a symbolic man, a man in *her* own image, a political symbol. 
+* Speaking through sin.
 
 ![img-civi](images/05_ages-of-civilization_eden.svg)
 ![img-code](images/15_hebrew-code.svg)
