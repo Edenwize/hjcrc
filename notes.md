@@ -12,6 +12,8 @@
 
 [^30]: I also call this male-tude.
 
+[^32]: These females of fortune are a force to be reckoned with. They become nearly desensitized of the needs of society and can speak falsehoods barefacedly.
+
 ** [^32]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting (also to confuse).
 
 [^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
@@ -23,12 +25,13 @@
 * It presents as disguised discrimination.
 * *full disclosure*
 * More Review needed: HJCSIC_Story of the Moral +Genesis 1
-* [^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
 * Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly, though, I got this information by constant consideration of my reading the Bible.
-* [^Judeo-Catholic-Definition]: The traditional definition of religion (a spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and Catholics leaders. Religion was used because it had many similar properties and disguised their system.
 * Some people had to deal with the gods, The underwritten learned to lie, and hide add a way to deal with their social clashes.
 * She wanted to make a symbolic man, a man in *her* own image, a political symbol. 
 * Speaking through sin.
+* Roughly fifty years.
+* [^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
+* [^Judeo-Catholic-Definition]: The traditional definition of religion (a spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and Catholics leaders. Religion was used because it had many similar properties and disguised their system.
 
 ![img-civi](images/05_ages-of-civilization_eden.svg)
 ![img-code](images/15_hebrew-code.svg)
