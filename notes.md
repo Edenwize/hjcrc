@@ -18,6 +18,10 @@
 
 [^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
 
+[^36]: *Def*: Saying one thing but meaning the opposite.
+
+[^38]: I know, this metaphor greatly undershoots what it represents.
+
 ## To Do/Appendix
 
 * *Personal Salvation*
