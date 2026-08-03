@@ -20,8 +20,8 @@ The rewards were so good that the underwritten became many men. They, and the pe
 
  To resurge new male god creationism, three things were done by the shegods:
  
- * Provoked the remaining men by emasculating them.
- * Sanctified *one* man's judgments, in Eden, over other men.
+ * Provoked Eden's men by emasculating them.
+ * Sanctified *one* man in Eden, his judgments, over other men.
  * Lied to and permissioned the sanctified man's wife to discriminate against: the next least fortunate ~~man?...~~ woman!
  
  They tempted the innocent men with godhood, '\[…\] you must not eat from the tree of the knowledge of good and evil, for when you eat from it you will certainly die.’<sup>Gen 2:17</sup> This was meant to provoke the innocent men. What it says is, through double-talk[^36], is that those who fantasize reality (sin), align to a sexual extreme (Hebrew Code: goo**d**, evi**l**), will be considered amongst the gods (**d**ie).
