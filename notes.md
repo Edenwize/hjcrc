@@ -14,8 +14,6 @@
 
 [^32]: These females of fortune are a force to be reckoned with. They become nearly desensitized of the needs of society and can speak falsehoods barefacedly.
 
-** [^32]: A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting (also to confuse).
-
 [^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
 
 [^36]: *Def*: Saying one thing but meaning the opposite.
@@ -27,6 +25,7 @@
 * *Personal Salvation*
 * A major divergence happened when the beautiful girls fought the female 'lords': they splintered and eventually became what we know as the Catholics today.
 * It presents as disguised discrimination.
+* A 'god' or 'lord god' repeats a underwritten's sin with one standout change as a symbol to appeal for underwriting (also to confuse).
 * *full disclosure*
 * More Review needed: HJCSIC_Story of the Moral +Genesis 1
 * Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly, though, I got this information by constant consideration of my reading the Bible.
