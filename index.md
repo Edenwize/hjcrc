@@ -18,11 +18,11 @@ The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was 
 
 The rewards were so good that the underwritten became many men. They, and the people with them, became so excited, and so selfish, that savagery happened, *the least fortunate man died*. This singular, negligent, and instigated event satiated the male excitement/underwriting[^30]. 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup> Though the excitement was satiated in the men, in their female-companions, the excitement continued---they liked what the big men got them. Though the shegods hardly thought the innocent men were godly, they thought they could 'mother' some of them to behave like gods,, '\[then\] the *Lord God* \[shegods\] made the ***earth*** **and the heavens**. \[… They\] planted a *garden* in the east, in Eden; and there ~~he~~ \[they\][^34] put the *man* ~~he~~ \[they\] had formed.'<sup>Gen 2:4-8</sup>
 
- To create the new male gods, three things were done to the remaining men:
+ To resurge new male god creationism, three things were done by the shegods:
  
- * Provoked by emasculating them.
- * Sanctified one man's judgments over others, only one.
- * Lied to and permissioned the sanctified man's wife to discriminate against: the next least fortunate man?... woman?!
+ * Provoked the remaining men by emasculating them.
+ * Sanctified *one* man's judgments, in Eden, over other men.
+ * Lied to and permissioned the sanctified man's wife to discriminate against: the next least fortunate ~~man?...~~ woman!
  
  They tempted the innocent men with godhood, '\[…\] you must not eat from the tree of the knowledge of good and evil, for when you eat from it you will certainly die.’<sup>Gen 2:17</sup> This was meant to provoke the innocent men. What it says is, through double-talk[^36], is that those who fantasize reality (sin), align to a sexual extreme (Hebrew Code: goo**d**, evi**l**), will be considered amongst the gods (**d**ie).
 
