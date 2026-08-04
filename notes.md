@@ -29,10 +29,8 @@
 * *full disclosure*
 * More Review needed: HJCSIC_Story of the Moral +Genesis 1
 * Reading some of the history of Chaldea[^HECSBAV3] also gave me insights. Mostly, though, I got this information by constant consideration of my reading the Bible.
-* Some people had to deal with the gods, The underwritten learned to lie, and hide add a way to deal with their social clashes.
 * She wanted to make a symbolic man, a man in *her* own image, a political symbol. 
 * Speaking through sin.
-* Roughly fifty years.
 * They became a force of selfishness… became more desensitized, grew in size, and could barefacedly speak falsehoods.
 * [^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
 * [^Judeo-Catholic-Definition]: The traditional definition of religion (a spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and Catholics leaders. Religion was used because it had many similar properties and disguised their system.
