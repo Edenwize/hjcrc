@@ -10,7 +10,7 @@
 
 [^17]: (My word) It clobbers history by applying newer rules throughout.
 
-[^30]: I also call this male-tude.
+[^30] [^30]: I also call this male-tude.
 
 [^32]: These females of fortune are a force to be reckoned with. They become nearly desensitized of the needs of society and can speak falsehoods barefacedly.
 
