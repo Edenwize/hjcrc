@@ -20,6 +20,8 @@ The rewards were so good that the underwritten became many men. They, and the pe
 
 * They wanted to build another male god (earth and the heavens, mist from the ground, then the Lord God formed adam).
 * But, some people convinced them that they were doing male-tude (their male-companions had previously overwhelmed some male behaviors on them) and they corrected, a bit, '… planted a *garden* in the east, in Eden'.
+* Adam was instead to 'take care' (keep ignorant) of the people in Eden. Genesis 2: 15. The Lord God took the man and put him in the Garden of Eden to work it and take care of it. good, evil, *life*. This duty (to confuse) was to remain his till he chose to put himself above it, 'Genesis 2: 17. but you must not eat from the tree of the knowledge of good and evil, for when you eat from it you will certainly die."
+* Adam was given consecrated elevation, secretly, 'Genesis 2: 19. Now the Lord God had formed out of the ground all the wild animals and all the birds in the sky. He brought them to the man to see what he would name them; and whatever the man called each living creature, that was its name.' And a dim wife.
 
  To ~~resurge new male god creationism~~ the shegods, three things were done (or, maybe, three women did things):
  
