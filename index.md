@@ -16,7 +16,10 @@ The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was 
 
 ## Genesis 2
 
-The rewards were so good that the underwritten became many men. They, and the people with them, became so excited, and so selfish, that savagery happened, *the least fortunate man died*. This singular, negligent, and instigated event satiated the male excitement, ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup> The ending of the hunt for the men hardly satiated their female-companions. The least fortunate man's death retired the men, but the women, so part of the rewards, wanted the hunt to continue, '\[then\] the *Lord God* \[shegods\] made the ***earth*** **and the heavens**. \[… They\] planted a *garden* in the east, in Eden; and there ~~he~~ \[they\][^34] put the *man* ~~he~~ \[they\] had formed.'<sup>Gen 2:4-8</sup>
+The rewards were so good that the underwritten became many men. They, and the people with them, became so excited, and savage, that the worst happened, *the least fortunate man died*. This singular, negligent, and instigated event satiated the male excitement, ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup> The least fortunate man's death, the ending of the hunt, though satiated the men hardly did so for their female-companions. They wanted to continue the hunt, '\[then\] the *Lord God* \[shegods\] made the ***earth*** **and the heavens**. \[… They\] planted a *garden* in the east, in Eden; and there ~~he~~ \[they\][^34] put the ***man*** ~~he~~ \[they\] had formed.'<sup>Gen 2:4-8</sup>
+
+* They wanted to build another male god (earth and the heavens, mist from the ground, then the Lord God formed adam).
+* But, some people convinced them that they were doing male-tude (their male-companions had previously overwhelmed some male behaviors on them) and they corrected, a bit, '… planted a *garden* in the east, in Eden'.
 
  To ~~resurge new male god creationism~~ the shegods, three things were done (or, maybe, three women did things):
  
