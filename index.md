@@ -1,6 +1,6 @@
 # The Message of the Judeo-Catholic Bible[^00]
 
-**Warning:** *The details described herein contain extreme and selfish behaviors that have deadly results. Please consider with respect for all life.*
+**Warning:** *The details described herein contain extreme and selfish behaviors that have deadly results. Please consider with respect for life.*
 
 Human civilization was once a natural order. Then, 4100 years ago, the Hebrew 'religion' started their system. The system is extraordinarily selfish, very secretive, and (to the ignorant) loomingly deadly. The Hebrews (and the Catholics---a sect from their start) protect the system ruthlessly. To the insiders, it's silence they encourage, and to the outsiders, it's existence they obfuscate. It has become so prevalent they expect to get world-rule from it.
 
@@ -20,17 +20,17 @@ The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was 
 
 The rewards were so good that the underwritten became many men. They, and the people with them, became so excited, and so savage, that the worst happened, *the least fortunate man died*. This singular, negligent, and instigated event satiated the male excitement, ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
 
-The heavens were satisfied but the female-companions of the gods (shegods) still behaved like their counterparts. For awhile, they showed male-tude and discriminated against less fortunate men, '\[then\] the *Lord God* \[shegods\] made the ***earth*** **and the heavens**. But with the male-gods dormant, feminine nature gradually returned. They wanted to nurture the earthy males left behind. Since the male-gods got them many good things, they decided to mother the men of Eden by creating a similar god, \[… They\] planted a *garden* in the east, in Eden; and there ~~he~~ \[they\][^34] put the ***man*** ~~he~~ \[they\] had formed.'<sup>Gen 2:4-8</sup>
+The heavens were satisfied but the female-companions of the gods (shegods) still behaved like their male counterparts: they showed male-tude and discriminated against the less fortunate men, '\[then\] the *Lord God* \[shegods\] made the ***earth*** **and the heavens**'.<sup>Gen 2:4</sup> With the males dormant, though, eventually the mortal females wanted to return nurture to the earthy men. THE SHEGODS BECAME ANTAGONISTIC TO THEM---their male-gods got them many good things. So they decided to force another male god, '\[… The shegods\] planted a *garden* in the east, in Eden; and there ~~he~~ \[they\][^34] put the ***man*** ~~he~~ \[they\] had formed.'<sup>Gen 2:8</sup> They made policy to reestablish authority that exposed the possibility of godhood and tempted Eden, \[…\] you must not eat from the tree of the knowledge of good and evil, for when you eat from it you will certainly die.’<sup>Gen 2:17</sup> Then they consecrated one person in Eden to allure Eden further (it took away fairness), '\[the Lord God\] brought \[wild animals\] to the man to see what he would name them; and whatever the man called each living creature, that was its name.'<sup>Gen 2:19, </sup>[^38] 
 
-a psuedo-god to be sure that the Edenites were alright. So, in typical mortal-god fashion, they lazily consecrated one man's thinking, Adam in Eden, and made all his judgments sacrosanct.
+Adam's impressions (representatively) were to be supported by the gods. Over time, this underwriting (holistic and silent) lessened other men's feeling of inclusion. They began to feel inferior, fake bravado with knowledge, and began appealing to find what the supported things were. ~~Nature and truthfulness as a guide diminished.~~
 
 * Adam was instead to 'take care' (keep ignorant) of the people in Eden. Genesis 2: 15. The Lord God took the man and put him in the Garden of Eden to work it and take care of it.' good, evil, *life*. This duty (to confuse) was to remain his till he chose to put himself above it, 'Genesis 2: 17. but you must not eat from the tree of the knowledge of good and evil, for when you eat from it you will certainly die."
 * Adam was given consecrated elevation, secretly, 'Genesis 2: 19. Now the Lord God had formed out of the ground all the wild animals and all the birds in the sky. He brought them to the man to see what he would name them; and whatever the man called each living creature, that was its name.' And a dim wife.
 
  To ~~resurge new male god creationism~~ the shegods, three things were done (or, maybe, three women did things):
  
- * Emasculating Eden's men by provoking them…said that *femaled* can be gods too.
- * They made an eden man leader but messed up his perspective by silently underwriting him.
+ * Emasculating Eden's men by provoking them…said that *females* can be gods too.
+ * They made an Eden man leader but poisoned his fairness by underwriting him silently.
  * Lied to and encouraged the sanctified man's wife (Eve) to discriminate against the least fortunate ~~man?...~~ woman!
  
  They tempted the innocent men with godhood, '\[…\] you must not eat from the tree of the knowledge of good and evil, for when you eat from it you will certainly die.’<sup>Gen 2:17</sup> This was meant to provoke the innocent men. What it says is, through double-talk[^36], is that those who fantasize reality (sin), align to a sexual extreme (Hebrew Code: goo**d**, evi**l**), will be considered amongst the gods (**d**ie).
