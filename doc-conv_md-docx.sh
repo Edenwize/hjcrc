@@ -1,23 +1,23 @@
-## DOCUMENT CONVERT FROM MARKDOWN TO DOCX
+# Document converter for Markdown to MS-Word
 #
 
-$FILE_MD = "HJCSIC.md"
-$FILE_DC = "HJCSIC.docx"
-$EDITION = "00"
-$DATE    = Get-Date -UFormat "%Y-%m-%d"
+FILE_MD = "HJCSIC.md"
+FILE_DC = "HJCSIC.docx"
+EDITION = "00"
+DATE    = date +%Y-%m-%d
 
-## APPLY DATE TO DOCUMENT.
+# Date prepend to document.
 #
 ( Get-Content -Path "$FILE_MD" ) -replace "${EDITION}_[2][0-9][0-9][0-9]-[0-9][0-9]-[0-9][0-9]", "${EDITION}_$DATE" | Set-Content -Path "$FILE_MD"
 
-## APPLY TAG (AS DATE) TO GIT COMMIT.
+# Git: Tag add to commit (as date).
 #
 if ( -not $(git.exe tag --list "${EDITION}_$DATE") ) {
   git.exe tag --annotate "${EDITION}_$DATE" --message="${EDITION}_$DATE"
   if ( $? ) { echo "Git: Tagged revision as: ${EDITION}_$DATE" }
 }
 
-## CONVERT
+# Convert
 #
 pandoc.exe $FILE_MD `
   --from markdown `
@@ -27,13 +27,13 @@ pandoc.exe $FILE_MD `
   --output $FILE_DC `
   --reference-doc=template.docx
 
-## GIT HELP
+# Help for Git
 #
 # git.exe help tag
 # https://git-scm.com/book/en/v2/Git-Basics-Tagging
 # https://stackoverflow.com/a/46434732
 
-## FONT TESTS
+# Font tests
 #
 # Lora            9.3   too high!? 414
 # Merriweather    9.3

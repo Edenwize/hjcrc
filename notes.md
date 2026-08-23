@@ -14,9 +14,9 @@
 
 [^32]: These females of fortune are a force to be reckoned with. They become nearly desensitized of the needs of society and can speak falsehoods barefacedly.
 
-[^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
+[^33]: In the system pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
 
-[^35]: *Definition*: 'Sin' simply is any deviation from reality.
+[^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
 
 [^36]: *Def*: Saying one thing but meaning the opposite.
 
