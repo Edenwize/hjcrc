@@ -1,30 +1,30 @@
 # Document converter for Markdown to MS-Word
 #
 
-FILE_MD = "HJCSIC.md"
-FILE_DC = "HJCSIC.docx"
-EDITION = "00"
-DATE    = date +%Y-%m-%d
+FILE_MD="index.md"
+FILE_DC="HJCSIC.docx"
+EDITION="00"
+DATE=$(date +%Y-%m-%d)
 
 # Date prepend to document.
 #
-( Get-Content -Path "$FILE_MD" ) -replace "${EDITION}_[2][0-9][0-9][0-9]-[0-9][0-9]-[0-9][0-9]", "${EDITION}_$DATE" | Set-Content -Path "$FILE_MD"
+# ( Get-Content -Path "$FILE_MD" ) -replace "${EDITION}_[2][0-9][0-9][0-9]-[0-9][0-9]-[0-9][0-9]", "${EDITION}_$DATE" | Set-Content -Path "$FILE_MD"
 
 # Git: Tag add to commit (as date).
 #
-if ( -not $(git.exe tag --list "${EDITION}_$DATE") ) {
-  git.exe tag --annotate "${EDITION}_$DATE" --message="${EDITION}_$DATE"
-  if ( $? ) { echo "Git: Tagged revision as: ${EDITION}_$DATE" }
-}
+# if ( -not $(git.exe tag --list "${EDITION}_$DATE") ) {
+#  git.exe tag --annotate "${EDITION}_$DATE" --message="${EDITION}_$DATE"
+#  if ( $? ) { echo "Git: Tagged revision as: ${EDITION}_$DATE" }
+#}
 
 # Convert
 #
-pandoc.exe $FILE_MD `
-  --from markdown `
-  --to docx `
-  --dpi=300 `
-  --wrap=none `
-  --output $FILE_DC `
+pandoc $FILE_MD \
+  --from markdown \
+  --to docx \
+  --dpi=300 \
+  --wrap=none \
+  --output $FILE_DC \
   --reference-doc=template.docx
 
 # Help for Git
