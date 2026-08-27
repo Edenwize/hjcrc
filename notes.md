@@ -22,6 +22,8 @@
 
 [^38]: I know, this metaphor greatly undershoots what it represents.
 
+[^40]: Over time, this underwriting (holistic and silent) lessened other men's feeling of inclusion. They began to feel inferior, fake bravado with knowledge, and began appealing to find what the supported things were. Nature and truthfulness as a guide diminished.
+
 ## To Do/Appendix
 
 * *Personal Salvation*
