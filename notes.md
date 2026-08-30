@@ -12,7 +12,7 @@
 
 [^30] [^30]: I also call this male-tude.
 
-[^32]: These females of fortune are a force to be reckoned with. They become nearly desensitized of the needs of society and can speak falsehoods barefacedly.
+[^32]: These females of fortune are a force to be reckoned with. They become mostly desensitized of the needs of society. From there they learn to speak falsehoods barefacedly.
 
 [^33]: In the system pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
 
@@ -22,7 +22,7 @@
 
 [^38]: I know, this metaphor greatly undershoots what it represents.
 
-[^40]: Over time, this underwriting (holistic and silent) lessened other men's feeling of inclusion. They began to feel inferior, fake bravado with knowledge, and began appealing to find what the supported things were. Nature and truthfulness as a guide diminished.
+[^40]: Adam's underwriting (holistic and silent) over a time of fifty years, had a massive effect. It lessened other men's feeling of inclusion and made them feel inferior. They began making pleas to find what the supported things were. They found few answers and, in turn, became competitive, began to fight. Nature and truthfulness as a guide diminished.
 
 ## To Do/Appendix
 
