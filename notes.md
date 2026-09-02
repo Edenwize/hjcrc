@@ -4,15 +4,13 @@
 
 [^10]: It's purpose is for insiders to glean the system's development, while to the outsiders, to thwart affection.
 
-[^12]: The Hebrew people (and many others today) use a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions.
+[^12]: The Hebrew people created a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions: 1=Juke; 2=6; 3=Messiah(sacrifice), Wrong(common,error); 4=Diety; 5=Eden, an Ordinary; 6=Fatgirl; 7=Gang; 8=Hebrew, Heaven; 9=Instigator.
 
 [^15]: Its graphicness can hide meanings that can only be tolerated by those who have abundant health (from supernatural safety).
 
 [^17]: (My word) It clobbers history by applying newer rules throughout.
 
-[^30] [^30]: I also call this male-tude.
-
-[^32]: These females of fortune are a force to be reckoned with. They become mostly desensitized of the needs of society. From there they learn to speak falsehoods barefacedly.
+[^32]: These people of fortune (gods) become dangerous elements in civilization. They lose sensitivity for the needs of common citizens and speak falsehoods barefacedly to achieve whatever it is they desire. In psychology, psychosis is often attributed to them.
 
 [^33]: In the system pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
 
