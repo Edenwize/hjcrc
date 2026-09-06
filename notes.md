@@ -12,6 +12,8 @@
 
 [^32]: These people of fortune (gods) become dangerous elements in civilization. They lose sensitivity for the needs of common citizens and speak falsehoods barefacedly to achieve whatever it is they desire. In psychology, psychosis is often attributed to them.
 
+[^32.5]: They do this largely mentally.
+
 [^33]: In the system pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
 
 [^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
@@ -20,7 +22,7 @@
 
 [^38]: I know, this metaphor greatly undershoots what it represents.
 
-[^40]: Adam's underwriting (holistic and silent) over a time of fifty years, had a massive effect. It lessened other men's feeling of inclusion and made them feel inferior. They began making pleas to find what the supported things were. They found few answers and, in turn, became competitive, began to fight. Nature and truthfulness as a guide diminished.
+[^40]: Adam's underwriting (holistic and silent) over a time of fifty years, had a massive effect. It lessened other men's feeling of inclusion and made them feel inferior. They began making pleas to find what the supported things were. They found few answers and, in turn, became competitive, began to fight. Nature and truthfulness as guides diminished.
 
 ## To Do/Appendix
 
