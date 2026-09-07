@@ -1,29 +1,3 @@
-[^00]: Version: 00_2026-07-12; Online: <https://bit.ly/HJCSIC_MW> <https://bit.ly/HJCSIC> <https://raw.githubusercontent.com/EdenWise/hjcrc/refs/heads/main/index.md> BITLY Account froze.
-
-[^03]: *Definition*: Rewarding a person or concept, financially or otherwise, until one can guarantee its success.
-
-[^10]: It's purpose is for insiders to glean the system's development, while to the outsiders, to thwart affection.
-
-[^12]: The Hebrew people created a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions: 1=Juke; 2=6; 3=Messiah(sacrifice), Wrong(common,error); 4=Diety; 5=Eden, an Ordinary; 6=Fatgirl; 7=Gang; 8=Hebrew, Heaven; 9=Instigator.
-
-[^15]: Its graphicness can hide meanings that can only be tolerated by those who have abundant health (from supernatural safety).
-
-[^17]: (My word) It clobbers history by applying newer rules throughout.
-
-[^32]: These people of fortune (gods) become dangerous elements in civilization. They lose sensitivity for the needs of common citizens and speak falsehoods barefacedly to achieve whatever it is they desire. In psychology, psychosis is often attributed to them.
-
-[^32.5]: They do this largely mentally.
-
-[^33]: In the system pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
-
-[^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive, particularly regarding gender.
-
-[^36]: *Def*: Saying one thing but meaning the opposite.
-
-[^38]: I know, this metaphor greatly undershoots what it represents.
-
-[^40]: Adam's underwriting (holistic and silent) over a time of fifty years, had a massive effect. It lessened other men's feeling of inclusion and made them feel inferior. They began making pleas to find what the supported things were. They found few answers and, in turn, became competitive, began to fight. Nature and truthfulness as guides diminished.
-
 ## To Do/Appendix
 
 * *Personal Salvation*
@@ -39,6 +13,6 @@
 * The system's foundation is male dominion.
 * [^03]: The discovery of the [Protocols of the meetings of the Zionist men of wisdom](https://www.gutenberg.org/ebooks/64977) had a large effect in sparking the motive for World War II.
 * [^Judeo-Catholic-Definition]: The traditional definition of religion (a spiritual practice with an ethereal god) lacks being appropriate for the Hebrew and Catholics leaders. Religion was used because it had many similar properties and disguised their system.
-
+* [^36]: *Def*: Saying one thing but meaning the opposite.
 ![img-civi](images/05_ages-of-civilization_eden.svg)
 ![img-code](images/15_hebrew-code.svg)
