@@ -4,7 +4,7 @@
 
 Human civilization was once a natural order. Then, 4100 years ago, the Hebrew 'religion' started their system. The system is extraordinarily selfish, very secretive, and (to the ignorant) loomingly deadly. The Hebrews (and the Catholics---a sect from their start) protect the system ruthlessly. To the insiders, it's silence they encourage, and to the outsiders, it's existence they obfuscate. It has become so prevalent they expect to get world-rule from it.
 
-The system is a chain reaction of reckless underwriting[^03]. Simply, they underwrite chosen males for fifty years, then they underwrite chosen females for fifty years. These underwritten people being preternaturally protected become narcissistic and hormonal. Their behavior results in inevitable social clashes. Narcissistically, they counter these social clashes with a subversive policy on the martyr. The people that support these policies get inclusion. These policies grow alluringly to the respective sex of the age, and the fortunate. After fifty years of them they build to sexual extremes: war on one end, and over-nurturing on another. The system after 4100 years is fine-tuned, dichotomous, and extraordinarily deadly. (The Catholics are the desperate people who have agreed to keep the stragglers and sacrifices at bay for inclusion.)
+The system is a chain reaction of reckless underwriting[^03]. Simply, they underwrite chosen males for fifty years, then they underwrite chosen females for fifty years. These underwritten people being supernaturally protected become narcissistic and hormonal. Their behavior results in inevitable social clashes. Narcissistically, they counter these social clashes with a subversive policy on the martyr. The people that support these policies get inclusion. These policies grow alluringly to the respective sex of the age, and the fortunate. After fifty years of them they build to sexual extremes: war on one end, and over-nurturing on another. The system after 4100 years is fine-tuned, dichotomous, and extraordinarily deadly. (The Catholics are the desperate people who have agreed to keep the stragglers and sacrifices at bay for inclusion.)
 
 ## How this writing became possible.
 
@@ -20,18 +20,19 @@ The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was 
 
 The rewards were so lucrative that the underwritten became many men, and it went on for a time. They became so excited (and the people with them), so roughshod, that the worst happened, *the least fortunate man died*. This singular, negligent, and instigated event relieved the male excitement, and ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male-gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
 
-The females had learned male-god behavior and continued to hunt the less fortunate men, '\[…] the *Lord God* \[female-god\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> The males, though, being dormant caused most females to return to their instincts and nurture the less fortunate men. *Some females*, though, who sought to perpetuate the profit the male-gods got, wanted to make more of them.[^32] To do this, they began instigating Eden (the less fortunate men)[^32.5], 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
+In the females, the hunt continued for awhile. The least fortunate man's death left currents in civilization and the females who were with the male-gods wanted to protect them, and the females liked the profit the male-god behavior got them, '\[…] the *Lord God* \[female-god\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> The males, though, being dormant caused most females to return to their instincts and nurture the less fortunate men. *Some females*, though, were determined to make more male-gods.[^32] To do this, they sought to instigate Eden (the less fortunate men)[^32.5], 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
 
 First, they began by stating that their creations belonged to only lowly, ignorant Eden (to keep their male-gods from being offended), '\[…\] you must not eat from the tree of the knowledge of ***g**ood* and ***e**vil*, for when you eat from it you will certainly die.’<sup>Gen 2:17,</sup>[^33]. 
 
-Second, a *singular* man's impressions were consecrated in Eden, '\[…\] and ~~there~~ \[in Eden\]  ~~he~~ \[the female gods\][^34] put the ***man*** ~~he~~ \[they\] had formed \[… and they\] brought \[wild animals\] to the man to see what he would name them; and whatever the man called each living creature, that was its name.'<sup>Gen 2:8,19; </sup>[^38] All the gods were to endorse this demigod's impressions and do so as silently as possible. Over time, Adam becomes more included. Other men of Eden, though, grew continually excluded and eventually fought for inclusion.[^40]
+Second, a *singular* man's impressions were consecrated in Eden, '\[…\] and ~~there~~ \[in Eden\]  ~~he~~ \[the female gods\][^34] put the ***man*** ~~he~~ \[they\] had formed \[… and they\] brought \[wild animals\] to the man to see what he would name them; and whatever the man called each living creature, that was its name.'<sup>Gen 2:8,19; </sup> All the gods endorsed the demigod's impressions and did so as silently as possible. Over time, Adam becomes more included, and other men of Eden grew continually excluded (fighting for inclusion).[^40]
 
-Third, the female-companion that Adam got, was to be naive. Adam's influence seems surreal, so she dismissed many impressions. But the protection he emits is too attractive. She gravitated to it, '\[… the female gods\] made a woman from the rib ~~he~~ \[the female gods\] had taken out of the man, and \[she\] brought her to the man\[…\] she shall be called 'woman,' for she was taken out of man\[…\] That is why a man leaves his father and mother and is united to his wife, and they become one flesh.'<sup>Gen 2:22-24</sup> They were still in Eden, ignorant they were being underwritten, still fairly innocent, '\[… they\] were both naked, and they felt no shame.'<sup>Gen 2:25</sup>
+Third, the female-companion that Adam got, was to be naive. Adam's influence seems surreal, so she dismissed many impressions. But the protection he emits is too attractive. She gravitated to it, '\[… the female gods\] made a woman from the rib ~~he~~ \[the female gods\] had taken out of the man, and \[she\] brought her to the man\[…\] she shall be called 'woman,' for she was taken out of man\[…\] That is why a man leaves his father and mother and is united to his wife, and they become one flesh.'<sup>Gen 2:22-24</sup> Still, they were in Eden, ignorant they were being underwritten, fairly innocent, '\[… they\] were both naked, and they felt no shame.'<sup>Gen 2:25</sup>
 
 ## Genesis 3
 
-* I am afraid. My failing to alert the world to what is happening is squarely on my shoulders.
+MAYBE THE CREATION OF ADAM IS PART OF A PROCESS TO CREATE FEMALE GODS.
 
+I think the serpent is Adam's mother, very crafty. She feels bad for Eve having to be so second fiddle. So she lets Eve in on the truth, that she hardly has to be ordinary, 'For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God’.<sup>Gen 3:5</sup> 
 ––––
 
 [^00]: Version: 00_2026-09-06; Online: <https://github.com/Edenwize/hjcrc/blob/main/index.md> <https://bit.ly/HJCSIC_MW> <https://bit.l,y/HJCSIC> Bitly account broke.
@@ -42,7 +43,7 @@ Third, the female-companion that Adam got, was to be naive. Adam's influence see
 
 [^12]: The Hebrew people created a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions: 1=Juke; 2=6; 3=Messiah (sacrifice), Wrong (error but common); 4=Diety; 5=Eden, an Ordinary; 6=Fatgirl; 7=Gang; 8=Hebrew, Heaven; 9=Instigator.
 
-[^15]: Its graphicness can hide meanings that can only be tolerated by those who have abundant health (from supernatural safety).
+[^15]: Its graphicness can hide meanings that can only be tolerated by those who have abundant health (from supernatural protection).
 
 [^17]: (My word) It clobbers history by applying newer rules throughout.
 
@@ -52,9 +53,8 @@ Third, the female-companion that Adam got, was to be naive. Adam's influence see
 
 [^33]: In the system, pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
 
-[^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptivee---particularly regarding gender.
-
-
-[^38]: I know, this metaphor greatly undershoots what it represents.
+[^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive---particularly regarding gender.
 
 [^40]: Adam's underwriting, holistic and silent, over a time of fifty years, had a massive effect. It made other mortal men feel inferior. They began making pleas to find what the supported things were, became competitive, and began to fight. Nature and truthfulness as guides diminished.
+
+[^44]: I am afraid. My failing to alert the world to what is happening is squarely on my shoulders.
