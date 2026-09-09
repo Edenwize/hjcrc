@@ -16,3 +16,4 @@
 * [^36]: *Def*: Saying one thing but meaning the opposite.
 ![img-civi](images/05_ages-of-civilization_eden.svg)
 ![img-code](images/15_hebrew-code.svg)
+<img src="http://url.to/image.png" align="right" width="25%" >
