@@ -32,7 +32,7 @@ Third, the female-companion that Adam got, was to be naive. Adam's influence see
 
 MAYBE THE CREATION OF ADAM IS PART OF A PROCESS TO CREATE FEMALE GODS.
 
-I think the serpent is Adam's mother, very crafty. She feels bad for Eve having to be so second fiddle. So she lets Eve in on the truth, that she hardly has to be ordinary, 'For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God’.<sup>Gen 3:5</sup> 
+I think the serpent is Adam's mother, very crafty. She feels bad for Eve having to be so second fiddle. So she lets Eve in on the truth, that she hardly has to be ordinary, 'For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God\[…\]. When the woman saw that the fruit was\[…\] desirable for gaining wisdom, she took some and ate it. She also gave some to her husband\[…\]’<sup>Gen 3:5-6</sup> They were now gods, 'Then the eyes of both of them were opened, and they realized they were naked\[…\]'.
 ––––
 
 [^00]: Version: 00_2026-09-06; Online: <https://github.com/Edenwize/hjcrc/blob/main/index.md> <https://bit.ly/HJCSIC_MW> <https://bit.l,y/HJCSIC> Bitly account broke.
