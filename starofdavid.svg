@@ -297,7 +297,7 @@
          dy="1.1249388">elders</tspan></text>
     <path
        id="path5"
-       style="color:#000000;display:inline;fill:#e06600;fill-opacity:1;stroke:none;stroke-width:0.256634;stroke-linecap:round;stroke-linejoin:round;stroke-dasharray:none;stroke-opacity:1"
+       style="color:#000000;display:inline;fill:#e26c08;fill-opacity:1;stroke:none;stroke-width:0.256634;stroke-linecap:round;stroke-linejoin:round;stroke-dasharray:none;stroke-opacity:1"
        inkscape:label="eden"
        d="m 131.90991,332.7353 -12.62209,7.28735 11.07878,19.18893 1.5436,2.72743 1.54301,-2.72743 v 0 l 11.0792,-19.18892 v 0 z"
        sodipodi:nodetypes="ccccccccc" />
@@ -314,13 +314,13 @@
        inkscape:label="segregator" />
     <path
        id="path6"
-       style="color:#000000;display:inline;fill:#cf0c0c;fill-opacity:1;stroke:none;stroke-width:0.256634;stroke-linecap:round;stroke-linejoin:round;stroke-dasharray:none;stroke-opacity:1"
+       style="color:#000000;display:inline;fill:#cb2121;fill-opacity:1;stroke:none;stroke-width:0.256634;stroke-linecap:round;stroke-linejoin:round;stroke-dasharray:none;stroke-opacity:1"
        inkscape:label="heaven"
        d="m 131.96711,318.23386 v 0 h -22.15754 l -2.92786,0.0294 1.38456,2.64399 11.07876,19.18934 12.62208,-7.28766 z"
        sodipodi:nodetypes="cccccccc" />
     <path
        id="path7"
-       style="color:#000000;display:inline;fill:#139713;fill-opacity:1;stroke:none;stroke-width:0.256634;stroke-linecap:round;stroke-linejoin:round;stroke-dasharray:none;stroke-opacity:1"
+       style="color:#000000;display:inline;fill:#269826;fill-opacity:1;stroke:none;stroke-width:0.256634;stroke-linecap:round;stroke-linejoin:round;stroke-dasharray:none;stroke-opacity:1"
        inkscape:label="7even"
        d="m 131.94743,332.7841 12.62251,7.2876 11.07878,-19.18928 1.56277,-2.67327 -3.10607,-5e-5 h -22.15799 v 7.2875 z"
        sodipodi:nodetypes="cccccccc" />
