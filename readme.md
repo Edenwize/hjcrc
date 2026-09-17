@@ -1,12 +1,12 @@
 The Judeo-Catholic system has been around for a long time. It's details need better explanation.
 
-I wrote this document in markdown to allow easy editing. The raw document is titled [hjcrc.md](https://github.com/EdenWise/hjcrc/blob/main/HJCSIC_part1.md)
+I wrote this document in markdown to allow easy editing. The raw document is titled [hjcrc.md](https://github.com/EdenWise/hjcrc/blob/main/index.md)
 
-I list the steps below that I take to convert it to a Microsoft Word document. It will look like one I have [here](http://tinyurl.com/hjcr1).
+I list the steps below that I take to convert it to a Microsoft Word document. It will look like one I have [here](https://raw.githubusercontent.com/Edenwize/hjcrc/refs/heads/main/HJCSIC.docx).
 
 ## Template Build
 
-Pandoc can import what is basically a style sheet to design the document. The allowable styles are limited but it still gets a fair amount of formatting. I may be able to do more with [Pandoc's Input Method](https://pandoc.org/MANUAL.html#input), I have yet to try.
+Pandoc can import what is basically a style sheet to design the document. The allowable styles are limited but it still gets a fair amount of formatting. I may be able to do more with [Pandoc's Input Method](https://pandoc.org/MANUAL.html#input). I have yet to try.
 
 I first generated a template and then I imported the matching styles from my original Microsoft-Word document. To generate a template with default settings:
 
