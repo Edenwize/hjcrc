@@ -34,7 +34,9 @@ Finally, the female-companion that Adam got, was to be naive. Adam's influence s
 
 
 
-The serpent is Adam's mother, very crafty. She is a bit wiser and knows the female gods. She is upset with them for their selfish, male-like ways. Adam's wife feels a bit of an outsider and she appeals to the community.
+The serpent is Adam's mother, very crafty. She is a bit wiser and knows the female gods. She is upset with them for their selfish, male-like ways. Adam's 'wife', Eve, feels a bit of an outsider, so she appeals to the community.
+
+Eve, Adam's 'wife', because of her relationship to Adam, feels a bit odd. So she find herself constantly appealing to the citizenry. This behavior is bothersome to the female-gods who have grown to fear natural reactions. Adam's Mom feels bad for her reception. She, perhaps feeling duped by the female-gods, decides to get revenge.
 
 She feels bad for Eve having to be so second fiddle. So she lets Eve in on the truth, that she hardly has to be ordinary, 'For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God\[…\]. When the woman saw that the fruit was\[…\] desirable for gaining wisdom, she took some and ate it. She also gave some to her husband\[…\]’<sup>Gen 3:5-6</sup> They were now gods, 'Then the eyes of both of them were opened, and they realized they were naked\[…\]'.
 ––––
@@ -45,7 +47,7 @@ She feels bad for Eve having to be so second fiddle. So she lets Eve in on the t
 
 [^10]: It's purpose is for insiders to glean the system's development, while to the outsiders, to thwart affection.
 
-[^12]: The Hebrew people created a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions: 1=Juke; 2=6; 3=Messiah (sacrifice), Wrong (error but common); 4=Diety; 5=Eden, an Ordinary; 6=Fatgirl; 7=Gang; 8=Hebrew, Heaven; 9=Instigator.
+[^12]: The Hebrew people created a code to share secrets with. It is hidden within ordinary language. The base meanings have *absolute* definitions: 1=Juke; 2=6; 3=Messiah (a male sacrifice), Worthless (error but common); 4=Diety; 5=Eden, an Ordinary; 6=Fatgirl (a female sacrifice); 7=Gang; 8=Hebrew, Heaven; 9=Instigator.
 
 [^15]: Its graphicness can hide meanings that can only be tolerated by those who have abundant health (from supernatural protection).
 
