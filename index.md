@@ -36,7 +36,7 @@ Finally, the female-companion that Adam got, was to be naive. Adam's influence s
 
 The serpent is Adam's mother, very crafty. She is a bit wiser and knows the female gods. She is upset with them for their selfish, male-like ways. Adam's 'wife', Eve, feels a bit of an outsider, so she appeals to the community.
 
-Eve, Adam's 'wife', because of her relationship to Adam, feels a bit odd. So she find herself constantly appealing to the citizenry. This behavior is bothersome to the female-gods who have grown to fear natural reactions. Adam's Mom feels bad for her reception. She, perhaps feeling duped by the female-gods, decides to get revenge.
+Eve, Adam's 'wife', because of her relationship to Adam, feels a bit odd. So she find herself constantly appealing to the citizenry. This behavior is bothersome to the female-gods who have grown to fear natural reactions. Adam's Mom feels bad for her reception. Feeling 'crafty' from her inclusion and knowing the female gods, decides to get revenge.
 
 She feels bad for Eve having to be so second fiddle. So she lets Eve in on the truth, that she hardly has to be ordinary, 'For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God\[…\]. When the woman saw that the fruit was\[…\] desirable for gaining wisdom, she took some and ate it. She also gave some to her husband\[…\]’<sup>Gen 3:5-6</sup> They were now gods, 'Then the eyes of both of them were opened, and they realized they were naked\[…\]'.
 ––––
