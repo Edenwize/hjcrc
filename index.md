@@ -2,7 +2,8 @@
 
 **Warning:** *The behavior described herein is derived from pleasure that overpowers natural rewards, oft with deadly consequences. Please read with consideration for life, for those with less protection.*
 
-<img src="images/50_civil-structure-thru-ages.svg" align="right" width="25%" >
+<img src=images/50_civil-structure-thru-ages.svg" align="right" width="25%" >
+![img civi struct](images/50_civil-structure-thru-ages.png)
 
 Human civilization was once a natural order. Then, 4100 years ago, the Hebrew 'religion' started their system. The system is extraordinarily selfish, very secretive, and (to the ignorant) loomingly deadly. The Hebrews (and the Catholics---a sect from their start) protect the system ruthlessly. To the insiders, it's silence they encourage, and to the outsiders, it's knowledge they obfuscate. It has become so prevalent they expect to get world-rule from it.
 
@@ -33,6 +34,9 @@ Finally, the female-companion that Adam got (Eve) was to be naive. Adam's influe
 ## Genesis 3
 
 Adam's 'wife', Eve, feels subordinate because of his power. So she find herself constantly explaining and appealing to the citizenry. This behavior is also uncomfortable to the female-gods who have learned to fear natural reactions. Adam's Mom, being older and wiser, has gleaned from the female-gods, her peers, and is considered amongst them. She is the 'serpent' and feels bad for Eve's subordinate reception. Feeling 'crafty' (that revenge is due) she decides to spread her fortune THAT THE EVE'S DESERVE POWER MORE THAN THE CURRENT, LAZY, MALE-BEHAVING FEMALE GODS. So she lets Eve in on the truth, that she hardly has to be ordinary, 'For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God\[…\]. When the woman saw that the fruit was\[…\] desirable for gaining wisdom, she took some and ate it. She also gave some to her husband\[…\]’<sup>Gen 3:5-6</sup> They were now gods, 'Then the eyes of both of them were opened, and they realized they were naked\[…\]'.
+
+* I am afraid. My failing to alert the world to what is happening is squarely on my shoulders.
+
 ––––
 
 [^00]: Version: 00_2026-09-06; Online: <https://github.com/Edenwize/hjcrc/blob/main/index.md> <https://bit.ly/HJCSIC_MW> <https://bit.l,y/HJCSIC> Bitly account broke.
@@ -49,12 +53,9 @@ Adam's 'wife', Eve, feels subordinate because of his power. So she find herself 
 
 [^32]: These people who inherit fortune (femgods oft) from the underwritten men, become dangerous elements in civilization. They lose sensitivity for the needs of common citizens. They speak falsehoods barefacedly so to achieve whatever it is their fantasy desires. In psychology *psychosis* is often attributed to them.
 
-[^32.5]: They do this largely mentally.
-
 [^33]: In the system, pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
 
 [^34]: Starting in Genesis 2, pronouns can be intentionally and completely deceptive---particularly regarding gender.
 
 [^40]: Adam's underwriting, holistic and silent, over a sizable era (fifty years today), made him feel like a god---it had a massive effect on civilization. Adam became super-included, and other men of Eden grew continually excluded. It made them growingly feel inferior. Nature and truthfulness as guides diminished. They began pining to find what the supported things were. This led to competitiveness and fighting.
 
-[^44]: I am afraid. My failing to alert the world to what is happening is squarely on my shoulders.
