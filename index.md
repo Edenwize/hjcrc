@@ -2,8 +2,7 @@
 
 **Warning:** *The behavior described herein is derived from pleasure that overpowers natural rewards, oft with deadly consequences. Please read with consideration for life, for those with less protection.*
 
-<img src=images/50_civil-structure-thru-ages.svg" align="right" width="25%" >
-![img civi struct](images/50_civil-structure-thru-ages.png)
+<img src=images/50_civil-structure-thru-ages.svg" align="right" width="15%" >
 
 Human civilization was once a natural order. Then, 4100 years ago, the Hebrew 'religion' started their system. The system is extraordinarily selfish, very secretive, and (to the ignorant) loomingly deadly. The Hebrews (and the Catholics---a sect from their start) protect the system ruthlessly. To the insiders, it's silence they encourage, and to the outsiders, it's knowledge they obfuscate. It has become so prevalent they expect to get world-rule from it.
 
@@ -23,7 +22,7 @@ The first Hebrews started the underwriting in Chaldea (modern day Iraq). It was 
 
 The rewards were so lucrative that the underwritten became many men, and it went on for a long time. They became so excited (and the people with them), so roughshod, that the worst happened: the *least* fortunate man died. This singular, negligent, and instigated event satiated the male excitement, and ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male-gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
 
-The female-gods (those that saw themselves higher than others) cherished the profit that their male-gods got them.[^32] With the least-fortunate-man's death though, they feared the male-gods would get regulated. So, the female-gods sought to get rid of the problem (continue the hunt), '\[…] the *Lord God* \[female-gods\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> Their plan was to use the god-power they had accumulated and reward into submission those close to the least-fortunate-man (ie buy them off), 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
+The female-gods (those that saw themselves higher than others) cherished the profit that their male-gods got them.[^32] With the least-fortunate-man's death though, they feared the male-gods would get reprimanded. So, the female-gods sought to get rid of the problem (continue the hunt), '\[…] the *Lord God* \[female-gods\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> Their plan was to use the god-power they had accumulated and reward into submission those close to the least-fortunate-man (ie buy them off), 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
 
 They began by stating that the rewardees were hardly gods themselves (ie they were still a part of lowly, ignorant Eden… likely, to keep their male-gods from being offended), '\[…\] you must not eat from the tree of the knowledge of ***g**ood* and ***e**vil*, for when you eat from it you will certainly die.’<sup>Gen 2:17,</sup>[^33]. 
 
