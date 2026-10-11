@@ -20,9 +20,9 @@ The first Hebrews started the system in Chaldea (modern day Iraq). It was starte
 
 ## Genesis 2
 
-The rewards were so lucrative that the underwritten became many men, and it went on for a long time. They became so excited (and the people with them), so roughshod, that the worst happened: the *least* fortunate man died. This singular, negligent, and instigated event satiated the male excitement, and ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male-gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
+The rewards were so lucrative that the underwritten became many men, and it went on for some time. They became so excited (and the people with them), so roughshod, that the worst happened: the *least* fortunate man died. This singular, negligent, and instigated event satiated the male excitement, alerted the authotities, and ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male-gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
 
-The female-gods (those that saw themselves higher than others) cherished the profit that their male-gods got them.[^32] With the least-fortunate-man's death though, they feared the male-gods would get reprimanded. So, the female-gods sought to get rid of the problem (continue the hunt), '\[…] the *Lord God* \[female-gods\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> Their plan was to use the god-power they had accumulated and reward those close to the least-fortunate-man into submission (ie buy them off), 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
+The female-gods (those that saw themselves higher than others) cherished the profit that their male-gods got them.[^31] With the least-fortunate-man's death though, they feared the male-gods would get reprimanded.[^32] So, the female-gods sought to get rid of the problem (continue the hunt), '\[…] the *Lord God* \[female-gods\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> Their plan was to use the god-power they had accumulated and reward those close to the least-fortunate-man into submission (ie buy them off), 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
 
 They began by stating that the rewardees were hardly gods themselves (ie they were still a part of lowly, ignorant Eden… likely, to keep their male-gods from being offended), '\[…\] you must not eat from the tree of the knowledge of ***g**ood* and ***e**vil*, for when you eat from it you will certainly die.’<sup>Gen 2:17,</sup>[^33]. 
 
@@ -50,7 +50,9 @@ Adam's 'wife', Eve, feels subordinate because of his power. So she find herself 
 
 [^17]: (My word) It clobbers history by applying newer rules throughout.
 
-[^32]: These people who inherit fortune (femgods oft) from the underwritten men, become dangerous elements in civilization. They lose sensitivity for the needs of common citizens. They speak falsehoods barefacedly so to achieve whatever it is their fantasy desires. In psychology *psychosis* is often attributed to them.
+[^31]: These people who inherit fortune (femgods oft) from the underwritten men, become dangerous elements in civilization. They lose sensitivity for the needs of common citizens. They speak falsehoods barefacedly so to achieve whatever it is their fantasy desires. In psychology *psychosis* is often attributed to them.
+
+[^32]: The male-gods getting reprimanded is likely the facial reason of what really happened. It makes more sense to me that Adam (pandering for godship, like a number of men were doing) used the threat of his brother's 'murder' to hijack the gods for inclusion. It would explain: his god rewards but his silent designation to Eden, the revenge his mother sought (Gen 3), Adam's betrayal, and Jacob's (another Adam) learned desire to betray his brother. The Hebrews though thrilled to hide information like this, do want to be honest in their book (did they hide publishing it because of the tremendous fortune it has given them?).
 
 [^33]: In the system, pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
 
