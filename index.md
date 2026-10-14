@@ -22,17 +22,9 @@ The first Hebrews started the system in Chaldea (modern day Iraq). It was starte
 
 The rewards were so lucrative that the underwritten became many men, and it went on for some time. They became so excited (and the people with them), so roughshod, that the worst happened: the *least*-fortunate-man died. This singular, negligent, and instigated event satiated the male excitement, alerted the authotities, and ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male-gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
 
-Femgods coverup for their men.
-Adam extorts/blackmails gods.
+The death of the least-fortunate-man was bound to cause a stir: the male-gods would gloat, talking would start amongst his family, the poor, and the city leaders. Adam, the least-fortunate-man's brother, who yearned to be a god, fell a little short on understanding what it takes to become one.[^31] So, he threatens the gods that he will tell people about his brothers murder. The female-gods[^32], who so cherished the profit that their male-gods got them, sought to cover things up (it continued the hunt), '\[…] the *Lord God* \[female-gods\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> Their plan was to use the god-power they had accumulated and reward those close to the least-fortunate-man into submission (ie buy them off), 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
 
-The death of the least-fortunate-man was bound to cause a stir: the male-gods would gloat, talking would start amongst his family, the poor, and the city leaders. The female-gods[^31] so cherished the profit that their male-gods got them. So, the female-gods sought to cover things up (it continued the hunt), '\[…] the *Lord God* \[female-gods\] made the **earth and the heavens**'.<sup>Gen 2:4</sup>
-
-
-[^32]: The male-gods getting reprimanded is likely the facial reason of what really happened. It makes more sense to me that Adam (pandering for godship, like a number of men were doing) used the threat of his brother's 'murder' to hijack the gods for inclusion. It would explain: his god rewards but his silent designation to Eden, the revenge his mother sought (Gen 3), Adam's betrayal, and Jacob's (another Adam) learned desire to betray his brother. The Hebrews though thrilled to hide information like this, do want to be honest in their book (did they hide publishing it because of the tremendous fortune it has given them?).
-
-With the least-fortunate-man's death though, they feared the male-gods would get incriminated.[^32] So, the female-gods sought to get rid of the problem (continue the hunt), '\[…] the *Lord God* \[female-gods\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> Their plan was to use the god-power they had accumulated and reward those close to the least-fortunate-man into submission (ie buy them off), 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
-
-They began by stating that the rewardees were hardly gods themselves (ie they were still a part of lowly, ignorant Eden… likely, to keep their male-gods from being offended), '\[…\] you must not eat from the tree of the knowledge of ***g**ood* and ***e**vil*, for when you eat from it you will certainly die.’<sup>Gen 2:17,</sup>[^33]. 
+They began by stating that Adam (who failed to understand that discrimination was the key) was hardly a god himself (ie he was still a part of lowly, ignorant Eden), '\[…\] you must not eat from the tree of the knowledge of ***g**ood* and ***e**vil*, for when you eat from it you will certainly die.’<sup>Gen 2:17,</sup>[^33]. 
 
 Next, the least-fortunate-man's brother (who had much empathy for him) was to have his impressions consecrated,, '\[…\] and ~~there~~ \[in Eden\]  ~~he~~ \[the female gods\][^34] put the ***man*** ~~he~~ \[they\] had formed \[… and they\] brought \[wild animals\] to the man to see what he would name them; and whatever the man called each living creature, that was its name.'<sup>Gen 2:8,19; </sup> All the gods were to endorse his impressions, as silently as possible.[^40] <sup>(Read footnote!)</sup>
 
@@ -58,7 +50,9 @@ Adam's 'wife', Eve, feels subordinate because of his power. So she find herself 
 
 [^17]: (My word) It clobbers history by applying newer rules throughout.
 
-[^31]: The gods (those that see themselves higher than others) are a force to be reckoned with. The femgods, who inherit fortune from the underwritten men, are very dangerous elements to civilization. Their protection can create fantasy that becomes most of their intent. They lose sensitivity for the needs of common citizens. They speak falsehoods barefacedly. In psychology people that behave such *psychosis* is often attributed to them.
+[^31]: This is outside the Bible, sorry, but I know this to be true. Adam (pandering for godship, like a number of men were doing) used the threat of his brother's 'murder' to blackmail the gods for inclusion. It would explain: his god rewards but his silent designation to Eden, the revenge his mother sought (Gen 3), Adam's abandoning Eden (eating the fruit also), and Jacob's (another Adam) learned desire to betray his brother… The Hebrews want to be truthful in their book to communicate amongst themselves on what the system is. Why this information is hidden may be entirely selfish: it makes it near impossible to trace back the impetus of their system.
+
+[^32l]: The gods (those that see themselves higher than others) are a force to be reckoned with. The femgods, who inherit fortune from the underwritten men, are very dangerous elements to civilization. Their protection can create intent that is mostly fantasy. They lose sensitivity for the needs of common citizens. They speak falsehoods barefacedly. In psychology people that behave such (lose contact with reality) *psychosis* is often attributed to them.
 
 [^33]: In the system, pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
 
