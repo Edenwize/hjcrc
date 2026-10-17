@@ -32,12 +32,8 @@ Adam's underwriting, holistic and silent, over a sizable era (fifty years today)
 
 ## Genesis 3
 
-When Adam felt less revenge and his brothers death faded from people's memory, the femgods quietly weaned his consecration. Adam's mother, the serpent, recognizes they are losing their status. This along with one son's death has got her upset. She knows godhood is about discrimination and that Eve has played second fiddle to Adam and is it quite popular. So she gets 'crafty'. She gets Eve to discriminate against the male-behaving femgods, '\[…\] Did God really say, "You must not eat from any tree in the garden?" \[…\] <sup>Gen 3:1,3</sup>
+When Adam felt less revenge and his brothers death faded from people's memory, the femgods quietly weaned his consecration. Adam's mother, the serpent, recognizes they are losing their status. This along with one son's death has got her upset. She knows godhood is about discrimination and that Eve has played second fiddle to Adam and is it quite popular. So she gets 'crafty'. She tells Eve she hardly has to play ordinary to the male-behaving femgods, '\[…\] Did God really say, "You must not eat from any tree in the garden?" \[…\] You will not certainly die. For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God\[…\]. When the woman saw that the fruit was\[…\] desirable for gaining wisdom, she took some and ate it. She also gave some to her husband\[…\]'<sup>Gen 3:1,3,5-6</sup> Adam and Eve both discriminated and became gods, 'Then the eyes of both of them were opened, and they realized they were naked\[…\]'.
 
-
---- End Fixing ---
-
----she find herself constantly explaining and appealing to the citizenry. This behavior is also uncomfortable to the female-gods who have learned to fear natural reactions. Adam's Mom, being older and wiser, has gleaned from the female-gods, her peers, and is considered amongst them. She is the 'serpent' and feels bad for Eve's subordinate reception. Feeling 'crafty' (that revenge is due) she decides to spread her fortune THAT THE EVE'S DESERVE POWER MORE THAN THE CURRENT, LAZY, MALE-BEHAVING FEMALE GODS. So she lets Eve in on the truth, that she hardly has to be ordinary, 'For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God\[…\]. When the woman saw that the fruit was\[…\] desirable for gaining wisdom, she took some and ate it. She also gave some to her husband\[…\]’<sup>Gen 3:5-6</sup> They were now gods, 'Then the eyes of both of them were opened, and they realized they were naked\[…\]'.
 
 * I am afraid. My failing to alert the world to what is happening is squarely on my shoulders.
 
