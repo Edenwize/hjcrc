@@ -2,7 +2,7 @@
 
 **Warning:** *The behavior described herein is derived from pleasure that overpowers natural rewards. It builds deadly consequences. Please read with respect for life---particularly for those with less fortune.*
 
-<img src=images/50_civil-structure-thru-ages.svg" align="right" width="15%" >
+<img src=images/50_civil-structure-thru-ages.png" align="right" width="15%" >
 
 Human civilization was once a natural order. Then, 4100 years ago, the Hebrew 'religion' started their system. The system is extraordinarily selfish, very secretive, and (to the ignorant) loomingly deadly. The Hebrews (and the Catholics---a sect from their start) protect the system ruthlessly. To the insiders, it's silence they encourage, and to the outsiders, it's knowledge they obfuscate. It has become so prevalent they expect to get world-rule from it.
 
@@ -53,7 +53,7 @@ When Adam felt less revenge and his brothers death faded from people's memory, t
 
 [^31]: This is outside the Bible, sorry, but I know this to be true. Adam (pandering for godship, like a number of men were doing) used the threat of his brother's 'murder' to blackmail the gods for inclusion. It would explain: his god rewards but his silent designation to Eden, the revenge his mother sought (Gen 3), Adam's abandoning Eden (eating the fruit also), and Jacob's (another Adam) learned desire to betray his brother… The Hebrews want to be truthful in their book to communicate amongst themselves on what the system is. Why this information is hidden may be entirely selfish: it makes it near impossible to trace back the impetus of their system.
 
-[^32]: The gods (those that see themselves higher than others) are a force to be reckoned with. The femgods, who inherit fortune from the underwritten men, are very dangerous elements to civilization. Their protection can create intent that is mostly fantasy. They lose sensitivity for the needs of common citizens. They speak falsehoods barefacedly. In psychology people that behave such (lose contact with reality) *psychosis* is often attributed to them.
+[^32l]: The gods (those that see themselves higher than others) are a force to be reckoned with. The femgods, who inherit fortune from the underwritten men, are very dangerous elements to civilization. Their protection can create intent that is mostly fantasy. They lose sensitivity for the needs of common citizens. They speak falsehoods barefacedly. In psychology people that behave such (lose contact with reality) *psychosis* is often attributed to them.
 
 [^33]: In the system, pronouncing authority is done through sin (def: simply, any deviation from reality) and disguising a message within it.
 
