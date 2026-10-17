@@ -20,7 +20,7 @@ The first Hebrews started the system in Chaldea (modern day Iraq). It was starte
 
 ## Genesis 2
 
-The rewards were so lucrative that the underwritten became many men, and it went on for some time. They became so excited (and the people with them), so roughshod, that the worst happened: the *least*-fortunate-man died. This singular, negligent, and instigated event satiated the male excitement, alerted the authotities, and ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male-gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
+The rewards were so lucrative that the underwritten became many men, and it went on for some time. They became so excited (and the people with them), so roughshod, that the worst happened: the *least*-fortunate-man/NICEST died. This singular, negligent, and instigated event satiated the male excitement, alerted the authotities, and ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male-gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
 
 The death of the least-fortunate-man was bound to cause a stir: the male-gods would gloat, talking would start amongst his family, the poor, and the city leaders. Adam, the least-fortunate-man's brother, yearned to be a god but fell a little short on what it takes to become one.[^31] So, he blackmailed the gods by threat of exposing his brothers murder. The female-gods[^32], who so cherished the profit that their male-gods got them, sought to cover things up (it continued the hunt), '\[…] the *Lord God* \[female-gods\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> Their plan was to use the god-power they had accumulated and reward Adam (and those close to the least-fortunate-man) into submission (ie buy them off), 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
 
@@ -32,10 +32,10 @@ Adam's underwriting, holistic and silent, over a sizable era (fifty years today)
 
 ## Genesis 3
 
-During Adam's influence era, the serpent, Adam's mother, learns what it takes to become a god. She is upset: one son murdered, and one son teased with an inferior heaven. As Adam's influence fades, she feels the ability for vengeance. a her affiliation with Eve makes her upset at the femgods. As the femgod buyoffs
+When Adam felt less revenge and his brothers death faded from people's memory, the femgods quietly weaned his consecration. Adam's mother, the serpent, recognizes they are losing their status. This along with one son's death has got her upset. She knows godhood is about discrimination and that Eve has played second fiddle to Adam and is it quite popular. So she gets 'crafty'. She gets Eve to discriminate against the male-behaving femgods, '\[…\] Did God really say, "You must not eat from any tree in the garden?" \[…\] <sup>Gen 3:1,3</sup>
 
-Adam's 'wife', Eve, feels subordinate because of his power.
---- End Fixed---
+
+--- End Fixing ---
 
 ---she find herself constantly explaining and appealing to the citizenry. This behavior is also uncomfortable to the female-gods who have learned to fear natural reactions. Adam's Mom, being older and wiser, has gleaned from the female-gods, her peers, and is considered amongst them. She is the 'serpent' and feels bad for Eve's subordinate reception. Feeling 'crafty' (that revenge is due) she decides to spread her fortune THAT THE EVE'S DESERVE POWER MORE THAN THE CURRENT, LAZY, MALE-BEHAVING FEMALE GODS. So she lets Eve in on the truth, that she hardly has to be ordinary, 'For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God\[…\]. When the woman saw that the fruit was\[…\] desirable for gaining wisdom, she took some and ate it. She also gave some to her husband\[…\]’<sup>Gen 3:5-6</sup> They were now gods, 'Then the eyes of both of them were opened, and they realized they were naked\[…\]'.
 
