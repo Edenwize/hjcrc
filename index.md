@@ -3,6 +3,7 @@
 **Warning:** *The behavior described herein is derived from pleasure that overpowers natural rewards. It builds deadly consequences. Please read with respect for life---particularly for those with less fortune.*
 
 <img src=images/50_civil-structure-thru-ages.png" align="right" width="15%" >
+![civil structure](50_civil-structure-thru-ages.png)
 
 Human civilization was once a natural order. Then, 4100 years ago, the Hebrew 'religion' started their system. The system is extraordinarily selfish, very secretive, and (to the ignorant) loomingly deadly. The Hebrews (and the Catholics---a sect from their start) protect the system ruthlessly. To the insiders, it's silence they encourage, and to the outsiders, it's knowledge they obfuscate. It has become so prevalent they expect to get world-rule from it.
 
