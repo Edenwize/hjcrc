@@ -1,6 +1,6 @@
 # The Message of the Judeo-Catholic Bible[^00]
 
-**Warning:** *The behavior described herein is derived from pleasure that overpowers natural rewards. It builds deadly consequences. Please read with respect for life---particularly for those with less fortune.*
+**Warning:** *The system described herein attacks natural boundaries to achieve hedonistic purposes. It builds deadly consequences. Please read with respect for life---particularly for those less fortunate.*
 
 <img src=images/50_civil-structure-thru-ages.svg align="right" width="15%" >
 
@@ -28,11 +28,13 @@ They began by stating that Adam (who failed to understand that gods discriminate
 
 Finally, the female-companion that Adam got (Eve) was to be naive (remain in Eden and without her thoughts consecrated). Adam's influence seems surreal, so she dismissed many impressions. But the influence he emits is too attractive. She gravitated to it, '\[… the female gods\] made a woman from the rib ~~he~~ \[the female gods\] had taken out of the man, and \[she\] brought her to the man\[…\] she shall be called 'woman,' for she was taken out of man\[…\] That is why a man leaves his father and mother and is united to his wife, and they become one flesh.'<sup>Gen 2:22-24</sup> Since Adam's buyoffs were done silently, they believed they were still in Eden, fairly innocent, '\[… they\] were both naked, and they felt no shame.'<sup>Gen 2:25</sup>
 
-Adam's underwriting, holistic and silent, over a sizable era (fifty years today), made him feel like a god. It had a massive effect on civilization! Adam became super-included, and other men of Eden grew continually excluded. It made them increasingly feel inferior. Nature and truthfulness as guides diminished. Eden's men began yearning to find what the supported things were (which led to competitiveness and fighting).
+Adam's underwriting, holistic and silent, did, over a sizable era (fifty years today), make him (at least subconsciously) feel very powerful. It had a massive effect on civilization. Adam became super-included. The other men of Eden grew continually excluded---made them increasingly feel inferior. Eden's men began yearning to find what the supported things were. Nature and truthfulness as guides diminished. Eventually this led to competitiveness and fighting.
 
 ## Genesis 3
 
-When Adam felt less revenge and his brothers death faded from people's memory, the femgods quietly weaned his consecration. Adam's mother, the serpent, recognizes they are losing their status. This along with one son's death has got her upset. She knows godhood is about discrimination and that Eve has played second fiddle to Adam and is it quite popular. So she gets 'crafty'. She tells Eve she hardly has to play ordinary to the male-behaving femgods, '\[…\] Did God really say, "You must not eat from any tree in the garden?" \[…\] You will not certainly die. For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God\[…\]. When the woman saw that the fruit was\[…\] desirable for gaining wisdom, she took some and ate it. She also gave some to her husband\[…\]'<sup>Gen 3:1,3,5-6</sup> Adam and Eve both discriminated and became gods, 'Then the eyes of both of them were opened, and they realized they were naked\[…\]'.
+When Adam felt less vengeance and his brothers death faded from people's memory, the femgods weaned his consecration quietly. Adam's mother, the serpent, recognizes that they are losing their status. This recognition, plus, one son's death, and the femgods selfishness, has got her upset. Eve, who feels naively inferior because of Adam's elevation, appeals for many things and is liked by his mother. Having learned that godhood is about discrimination, his mother gets 'crafty'. She tells Eve she hardly has to play ordinary to the male-behaving femgods anymore, '\[…\] Did God really say, "You must not eat from any tree in the garden? \[…\] You will not certainly die. For God knows that when you eat from ~~it~~ \[the tree of good and evil\] your eyes will be opened, and you will be like God\[…\]. When the woman saw that the fruit was\[…\] desirable for gaining wisdom, she took some and ate it. She also gave some to her husband\[…\]'<sup>Gen 3:1,3,5-6</sup> Eve (and Adam) denigrated the femgod position (discriminated) and became gods, 'Then the eyes of both of them were opened, and they realized they were naked\[…\]'.
+
+The femgods are mad and curse them 'cursed are you above all
 
 
 * I am afraid. My failing to alert the world to what is happening is squarely on my shoulders.
