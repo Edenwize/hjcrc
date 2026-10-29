@@ -26,7 +26,7 @@
      showguides="false"
      inkscape:zoom="1.5116129"
      inkscape:cx="-82.693126"
-     inkscape:cy="317.21083"
+     inkscape:cy="475.98163"
      inkscape:window-width="1920"
      inkscape:window-height="1027"
      inkscape:window-x="-8"
@@ -216,7 +216,7 @@
     </g>
     <path
        id="rect32351-2"
-       style="display:inline;fill:#701010;fill-opacity:1;stroke-width:0.304633;stroke-dasharray:9.13898;stroke-dashoffset:0"
+       style="display:inline;fill:#801a1a;fill-opacity:1;stroke-width:0.304633;stroke-dasharray:9.13898;stroke-dashoffset:0"
        inkscape:label="fill_group_heaven"
        d="m 37.95177,66.026424 -0.005,11.07384 -25.09387,-10e-4 -0.005,-11.07271 z"
        sodipodi:nodetypes="ccccc" />
@@ -295,7 +295,7 @@
        inkscape:label="segregator" />
     <path
        id="path6"
-       style="color:#000000;display:inline;fill:#bf1a1a;fill-opacity:1;stroke:none;stroke-width:0.256634;stroke-linecap:round;stroke-linejoin:round;stroke-dasharray:none;stroke-opacity:1"
+       style="color:#000000;display:inline;fill:#801a1a;fill-opacity:1;stroke:none;stroke-width:0.256634;stroke-linecap:round;stroke-linejoin:round;stroke-dasharray:none;stroke-opacity:1"
        inkscape:label="heaven"
        d="m 25.33967,119.98932 v 0 H 3.18213 l -2.92786,0.0294 1.38456,2.64399 11.07876,19.18934 12.62208,-7.28766 z"
        sodipodi:nodetypes="cccccccc" />
