@@ -39,9 +39,12 @@ The femgods are mad! And they curse them 'cursed are you above all
 ----
 
 How is this related to you?
-I am afraid. My failing to alert the world to what is happening is squarely on my shoulders. What is happening to the world, the Hebrews call the flood. The flood is when the world gets drowned in fantasy while it's creators get the safe ground. The fantasy starts with a family. In this case the family is my family. It starts when the parents get rewarded for the first (usually) son's misfortunes. Usually another son is added forming a trifecta, a quarantine-like situation. All this underwriting is silent, meaning the family ignorantly feels pretty smart for all they accomplish. This underwriting goes for fifty (or so) years. The rewards are so good, it makes the family disconnect from the growing misfortunes of their firstborn. Their fortune (fantasies) are spread (and they spread) to the others near them and are championed by the Hebrews and spread to the rest of the world.
 
-(Though their are local messiahs that help the load, I am the main one, all policy gets made through me.
+I am afraid. My failing to alert the world on what is happening is squarely on my shoulders.
+
+What is happening to the world, the Hebrews call the flood. The flood is when the world gets drowned in fantasy while it's creators get the safe ground. The fantasy starts with a family. In this century the family is my family. It starts when the parents get rewarded for the first (usually) son's misfortunes. Usually another son is added forming a trifecta, a quarantine-like situation. All this underwriting is silent, meaning the family ignorantly feels pretty smart for all they accomplish. This underwriting goes for fifty (or so) years. The rewards are so good, it makes the family disconnect from the growing misfortunes of their firstborn. Their fortune (fantasies) are spread (and they spread) to the others near them and are championed by the Hebrews and spread to the rest of the world. They and other people eventually learn to create misfortunes to the misfortunate son (some subconsciously) and get rewarded. The Messiah's (MT 2:1-4) misfortunes grow so much that they usually die from them, [some quite early](https://en.wikipedia.org/wiki/Jack_London). For two-thousand years (about this long I'm pretty sure) their are local messiahs that the load is fishwives on (carry a fantasy, eg solo). I am the main one, all policy gets made through me.
+
+My brother was created by the Hebrews. He is Adam, Jacob, Peter… He is the most powerful god (ie he knows much fantasy), though my parents have a good share too. He was gifted *solo* (gets to make couple policy, singlely), *memories*, and a number more (sorry my memory is hardly good these days).
 
 
 
