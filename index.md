@@ -6,7 +6,7 @@
 
 Human civilization was once a natural order. Then, 4100 years ago, the Hebrew 'religion' started their system. The system is extraordinarily selfish, very secretive, and (to the ignorant) menacingly deadly. The Hebrews (and the Catholics—a sect from their start) protect the system ruthlessly. To the insiders, it's silence they encourage, and to the outsiders, it's knowledge they obfuscate. It has become so prevalent they expect to get world-rule from it.
 
-The system is a reckless,, compounding, and progressive form of underwriting/buyoffs[^03]. Simply put, they underwrite narcissistic males for an era of fifty years, then they underwrite selfish females for an era fifty years. These underwritten people with preternatural protection become severely hormonal and demented. Their behavior results in inevitable social clashes. Protection from the clashes is created with a subversive policy on the martyr. The people that support these policies gather inclusion. These policies grow alluringly to the respective sex of the age, and the desperate. After fifty years of them they build to sexual extremes: a hunt on one end, and over-nurturing on another. The system after 4100 years is fine-tuned, dichotomous, and extraordinarily deadly. The Catholics are the desperate people who agreed to contain the yokels (sacrifice the naturals and corral the stragglers).
+The system is a reckless, compounding, and progressive form of underwriting/buyoffs[^03]. Simply put, they underwrite narcissistic males for an era of fifty years, then they underwrite selfish females for an era fifty years. These underwritten people with preternatural protection become severely hormonal and demented. Their behavior results in inevitable social clashes. Protection from the clashes is created with a subversive policy on the martyr. The people that support these policies gather inclusion. These policies grow alluringly to the respective sex of the age, and the desperate. After fifty years of them they build to sexual extremes: a hunt on one end, and over-nurturing on another. The system after 4100 years is fine-tuned, dichotomous, and extraordinarily deadly. The Catholics are the desperate people who agreed to contain the yokels (sacrifice the naturals and corral the stragglers).
 
 ## How this writing became possible.
 
@@ -20,7 +20,7 @@ The first Hebrews started the system in Chaldea (modern day Iraq). It was starte
 
 ## Genesis 2
 
-The rewards were so lucrative that the underwritten became many men, and it went on for some time. They became so excited (and the people with them), so roughshod, that the worst happened: the *nicest*-man around died. This singular, negligent, and instigated event temporarily satiated the male excitement, sent out alerts, and ultimately ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male-gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
+The rewards were so lucrative that the underwritten became many men, and it went on for some time. They became so excited (and the people with them), so roughshod, that the worst happened: the *nicest*-man died. This singular, negligent, and instigated event temporarily satiated the male excitement, sent out alerts, and ultimately ended the hunt, 'Thus the **heavens and the earth** were completed in all their vast array… and ~~he~~ \[the male-gods\] rested from all ~~his~~ \[of their\] work'.<sup>Gen 2:1-4</sup>
 
 The death of the nicest-man was bound to cause a stir: the male-gods would gloat, and talking would start amongst his family, the poor, and the authorities. Adam (the nicest-man's brother) yearned to be a god but fell short on knowing what it takes to become one.[^31] So, he blackmailed the gods by threat of exposing his brothers murder. The female-gods[^32], who so cherished the profit that their male-gods got them, sought to cover things up (it continued the hunt), '\[…] the *Lord God* \[female-gods\] made the **earth and the heavens**'.<sup>Gen 2:4</sup> Their plan was to use the god-power they had accumulated and reward Adam (and those close to the nicest-man) into submission (ie buy them off), 'the Lord God \[the female-gods\] planted a *garden* in the east, in Eden.'<sup>Gen 2:8</sup>
 
@@ -36,10 +36,14 @@ When Adam felt less vengeance and his brothers death faded from people's memory,
 
 The femgods are mad! And they curse them 'cursed are you above all
 
+----
 
-* I am afraid. My failing to alert the world to what is happening is squarely on my shoulders.
+How is this related to you?
+I am afraid. My failing to alert the world to what is happening is squarely on my shoulders. What is happening to the world, the Hebrews call the flood. The flood is when the world gets drowned in fantasy while it's creators get the safe ground. The fantasy starts with a family. In this case the family is my family. It starts when the parents get rewarded for the first (usually) son's misfortunes. Usually another son is added forming a trifecta, a quarantine-like situation. All this underwriting is silent, meaning the family ignorantly feels pretty smart for all they accomplish. This underwriting goes for fifty (or so) years. The rewards are so good, it makes the family disconnect from the growing misfortunes of their firstborn. Their fortune (fantasies) are spread (and they spread) to the others near them and are championed by the Hebrews and spread to the rest of the world.
 
-––––
+(Though their are local messiahs that help the load, I am the main one, all policy gets made through me.
+
+
 
 [^00]: Version: 00_2026-10-15; Online: <https://github.com/Edenwize/hjcrc/blob/main/index.md> <https://bit.ly/HJCSIC_MW> <https://bit.l,y/HJCSIC> BITLY ACCOUNT BROKE.
 
