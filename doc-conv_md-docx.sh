@@ -18,10 +18,11 @@ DATE=$(date +%Y-%m-%d)
 #}
 
 # Convert
-#
+# Pandoc keeps SVGs now but reqs. Office365
 pandoc $FILE_MD \
   --from markdown \
   --to docx \
+  --lua-filter=svg-to-png.lua \
   --dpi=300 \
   --wrap=none \
   --output $FILE_DC \
