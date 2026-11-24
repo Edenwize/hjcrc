@@ -1,4 +1,4 @@
-# Document converter for Markdown to MS-Word
+# Document convert from Markdown to MS-Word
 #
 
 FILE_MD="index.md"
@@ -19,14 +19,15 @@ DATE=$(date +%Y-%m-%d)
 
 # Convert
 # Pandoc keeps SVGs now but reqs. Office365
-pandoc $FILE_MD \
-  --from markdown \
-  --to docx \
-  --lua-filter=svg-to-png.lua \
-  --dpi=300 \
-  --wrap=none \
+pandoc $FILE_MD     \
+  --from markdown   \
+  --to    docx      \
+  --dpi=300         \
+  --wrap=none       \
   --output $FILE_DC \
   --reference-doc=template.docx
+#  --lua-filter=svg-to-png.lua \
+
 
 # Help for Git
 #

@@ -1,8 +1,8 @@
 # Document converter for Markdown to MS-Word
 #
 
-FILE_MD="index.md"
-FILE_DC="HJCSIC.pdf"
+FILE_DX="HJCSIC.docx"
+FILE_PD="HJCSIC.pdf"
 EDITION="00"
 DATE=$(date +%Y-%m-%d)
 
@@ -19,15 +19,14 @@ DATE=$(date +%Y-%m-%d)
 
 # Convert
 #
-pandoc $FILE_MD \
-  --from markdown \
+pandoc $FILE_DX \
+  --from docx \
   --to pdf \
   --lua-filter=svg-to-png.lua \
   --pdf-engine=weasyprint \
   --dpi=300 \
   --wrap=none \
-  --output $FILE_DC \
-  --reference-doc=template.docx
+  --output $FILE_PD
 
 # Help for Git
 #
